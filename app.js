@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/tcyl/',
+    prefix: '/nss/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
