@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/eqys/',
+    prefix: '/bkm/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
