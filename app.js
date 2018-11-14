@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/jrtbj/',
+    prefix: '/tan/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
