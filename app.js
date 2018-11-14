@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/tan/',
+    prefix: '/wvkdz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
