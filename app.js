@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/xf/',
+    prefix: '/ound/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
