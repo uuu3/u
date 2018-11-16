@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/pige/',
+    prefix: '/fnkw/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
