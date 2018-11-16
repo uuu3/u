@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/fnkw/',
+    prefix: '/epd/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
