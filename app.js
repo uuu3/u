@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/uda/',
+    prefix: '/btetr/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
