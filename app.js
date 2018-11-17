@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/eoad/',
+    prefix: '/ns/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
