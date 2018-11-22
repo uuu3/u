@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/kfb/',
+    prefix: '/eamzz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
