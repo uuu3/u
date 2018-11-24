@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/cotzr/',
+    prefix: '/gpmxu/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
