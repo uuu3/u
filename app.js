@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/pkab/',
+    prefix: '/xpom/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
