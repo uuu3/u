@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/iro/',
+    prefix: '/rnvtg/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
