@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/rpnih/',
+    prefix: '/pxu/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
