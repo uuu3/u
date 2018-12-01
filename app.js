@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/zmtbx/',
+    prefix: '/tg/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
