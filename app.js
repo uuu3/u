@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/dndvd/',
+    prefix: '/yi/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
