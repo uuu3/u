@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/dwji/',
+    prefix: '/leok/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
