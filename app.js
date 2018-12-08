@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/leok/',
+    prefix: '/rz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
