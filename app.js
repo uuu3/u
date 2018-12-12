@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/otrp/',
+    prefix: '/vw/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
