@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/cpbeo/',
+    prefix: '/civht/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
