@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/jdoxe/',
+    prefix: '/cpbeo/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
