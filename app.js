@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/lb/',
+    prefix: '/nptd/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
