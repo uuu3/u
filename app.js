@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/xruro/',
+    prefix: '/qig/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
