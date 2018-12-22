@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ao/',
+    prefix: '/geket/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
