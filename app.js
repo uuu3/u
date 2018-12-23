@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/vgs/',
+    prefix: '/irxno/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
