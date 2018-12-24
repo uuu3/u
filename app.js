@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ddiaq/',
+    prefix: '/vui/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
