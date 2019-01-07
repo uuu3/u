@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/muiip/',
+    prefix: '/giz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
