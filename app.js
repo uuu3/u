@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/bltoo/',
+    prefix: '/ikqnm/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
