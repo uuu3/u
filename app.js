@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ajv/',
+    prefix: '/anp/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
