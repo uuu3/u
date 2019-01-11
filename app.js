@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/lvupp/',
+    prefix: '/wkee/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
