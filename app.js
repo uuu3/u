@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/raq/',
+    prefix: '/aix/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
