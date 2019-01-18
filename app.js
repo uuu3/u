@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/pi/',
+    prefix: '/agvc/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
