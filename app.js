@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/im/',
+    prefix: '/ig/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
