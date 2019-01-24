@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/gws/',
+    prefix: '/baeo/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
