@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/zyum/',
+    prefix: '/bdtne/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
