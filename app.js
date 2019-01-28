@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/jjko/',
+    prefix: '/xwpdp/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
