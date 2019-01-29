@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/tvw/',
+    prefix: '/ilb/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
