@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/zdesr/',
+    prefix: '/ezotv/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
