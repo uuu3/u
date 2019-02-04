@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/katb/',
+    prefix: '/dl/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
