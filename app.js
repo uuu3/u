@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/bpowl/',
+    prefix: '/wd/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
