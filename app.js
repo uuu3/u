@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/fl/',
+    prefix: '/uois/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
