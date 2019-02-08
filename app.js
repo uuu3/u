@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/yxum/',
+    prefix: '/ck/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
