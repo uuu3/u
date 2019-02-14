@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/nsaqs/',
+    prefix: '/iv/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
