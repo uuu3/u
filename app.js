@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/dvby/',
+    prefix: '/ht/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
