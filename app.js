@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/fzq/',
+    prefix: '/vnmz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
