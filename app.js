@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/teq/',
+    prefix: '/pha/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
