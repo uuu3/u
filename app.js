@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/vnmz/',
+    prefix: '/teq/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
