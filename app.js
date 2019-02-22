@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/apk/',
+    prefix: '/wsyf/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
