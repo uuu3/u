@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/xxaq/',
+    prefix: '/tvwa/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
