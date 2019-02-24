@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/squ/',
+    prefix: '/eomb/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
