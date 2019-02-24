@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ng/',
+    prefix: '/hckv/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
