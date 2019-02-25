@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/eomb/',
+    prefix: '/tlj/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
