@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/egdal/',
+    prefix: '/wbegx/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
