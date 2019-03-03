@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/hrsa/',
+    prefix: '/npfr/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
