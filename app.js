@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/npfr/',
+    prefix: '/ol/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
