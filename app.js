@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/vnwnm/',
+    prefix: '/hrsa/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
