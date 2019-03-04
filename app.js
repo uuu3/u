@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/fmci/',
+    prefix: '/sr/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
