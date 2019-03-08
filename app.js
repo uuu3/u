@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/rot/',
+    prefix: '/gaeh/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
