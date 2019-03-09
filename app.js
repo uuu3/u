@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/uafuc/',
+    prefix: '/fv/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
