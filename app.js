@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/bsts/',
+    prefix: '/tgri/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
