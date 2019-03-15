@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/pb/',
+    prefix: '/db/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
