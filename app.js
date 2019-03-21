@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/nc/',
+    prefix: '/aec/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
