@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/okoc/',
+    prefix: '/gl/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
