@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/bncap/',
+    prefix: '/bow/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
