@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ipsx/',
+    prefix: '/vllmm/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
