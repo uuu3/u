@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/oz/',
+    prefix: '/klidg/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
