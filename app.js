@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/pjt/',
+    prefix: '/zxdin/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
