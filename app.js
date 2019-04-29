@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/zxdin/',
+    prefix: '/ipf/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
