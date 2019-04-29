@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ipf/',
+    prefix: '/bt/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
