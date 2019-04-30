@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/whpev/',
+    prefix: '/jdap/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
