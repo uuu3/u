@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/jdap/',
+    prefix: '/bg/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
