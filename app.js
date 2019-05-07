@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/cqthn/',
+    prefix: '/omnwf/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
