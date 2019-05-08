@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ljta/',
+    prefix: '/wwd/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
