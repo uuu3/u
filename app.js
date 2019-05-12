@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/sc/',
+    prefix: '/nnhvs/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
