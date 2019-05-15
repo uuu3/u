@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/cse/',
+    prefix: '/fbwtr/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
