@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/rt/',
+    prefix: '/yowf/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
