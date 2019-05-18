@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/zq/',
+    prefix: '/gpg/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
