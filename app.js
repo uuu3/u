@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/gpg/',
+    prefix: '/tklnk/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
