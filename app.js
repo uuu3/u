@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/miaz/',
+    prefix: '/scgga/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
