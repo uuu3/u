@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/dba/',
+    prefix: '/scei/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
