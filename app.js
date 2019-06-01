@@ -53,7 +53,7 @@ function googleAnalyticsMiddleware(data) {
 }
 
 var unblockerConfig = {
-    prefix: '/ikil/',
+    prefix: '/zcfz/',
     responseMiddleware: [
         googleAnalyticsMiddleware
     ]
