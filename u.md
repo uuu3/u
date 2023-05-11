@@ -14,9 +14,9 @@
 本平台二维码
 </details>
 
-```diff
-!如果打不开，隔一会儿再刷新一下。
-```
+
+如果打不开，隔一会儿再刷新一下。
+
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/05/11/a103709463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习雄安泄露疫情机密/习带三大亲信视察雄安  >-009fcc?logoWidth=1" title="习雄安泄露疫情机密／习带三大亲信视察雄安>>" alt="习雄安泄露疫情机密／习带三大亲信视察雄安>>"></a></p>
