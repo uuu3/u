@@ -13,10 +13,12 @@
 <img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?g%231" title="分享本平台"></img><br>
 本平台二维码
 </details>
+<div align="center">
 
 ```diff
 !如果打不开，隔一会儿再刷新一下。
 ```
+</div>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/05/11/a103709416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平罕见破规矩 李强成跟班 三常委陪习出京>-009fcc?logoWidth=1" title="习近平罕见破规矩　李强成跟班　三常委陪习>>" alt="习近平罕见破规矩　李强成跟班　三常委陪习>>"></a></p>
