@@ -15,9 +15,9 @@
 </details>
 <div align="center">
 
-```diff
+ ```diff
 !如果打不开，隔一会儿再刷新一下。
-```
+ ```
 </div>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
