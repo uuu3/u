@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/www.jpg"></a><br>
-<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/eettt">tinyurl.com/jjqjj</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?a%231" title="分享本平台"></img><br>
+<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/iii77">tinyurl.com/hhhht</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?i%231" title="分享本平台"></img><br>
 本平台二维码
 </details>
 
@@ -43,13 +43,12 @@
 <p><a href="https://github.com/19920513/djy/blob/master/gb/23/7/17/n14035688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁红冰爆秦刚失踪内情：与王毅权斗有关    >-009fcc?logoWidth=1" title="袁红冰爆秦刚失踪内情：与王毅权斗有关　　>>" alt="袁红冰爆秦刚失踪内情：与王毅权斗有关　　>>"></a></p>
 <p><a href="https://github.com/19920513/djy/blob/master/gb/23/7/18/n14036748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国房地产第二季重陷萎缩 房企面临退市潮  >-009fcc?logoWidth=1" title="中国房地产第二季重陷萎缩　房企面临退市潮>>" alt="中国房地产第二季重陷萎缩　房企面临退市潮>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/18/a103751079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两年亏损逾八千亿元 恒大财报一拖再拖终于公布>-009fcc?logoWidth=1" title="两年亏损逾八千亿元　恒大财报一拖再拖终于>>" alt="两年亏损逾八千亿元　恒大财报一拖再拖终于>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/18/a103750773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江全面取消落户限制 两大隐情受关注    >-009fcc?logoWidth=1" title="浙江全面取消落户限制　两大隐情受关注　　>>" alt="浙江全面取消落户限制　两大隐情受关注　　>>"></a></p>
 <p><a href="https://github.com/19920513/djy/blob/master/gb/23/7/18/n14036604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加码箝制言论 又一波打压 数百人被封号 >-009fcc?logoWidth=1" title="中共加码箝制言论　又一波打压　数百人被封>>" alt="中共加码箝制言论　又一波打压　数百人被封>>"></a></p>
 <p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/19/a103751190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海官场持续震荡 副部级央企高管肖星被查  >-009fcc?logoWidth=1" title="上海官场持续震荡　副部级央企高管肖星被查>>" alt="上海官场持续震荡　副部级央企高管肖星被查>>"></a></p>
 <p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/18/a103750874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七元老倒台 栽在一招上？        >-009fcc?logoWidth=1" title="中共七元老倒台　栽在一招上？　　　　　　>>" alt="中共七元老倒台　栽在一招上？　　　　　　>>"></a></p>
 <p><a href="https://github.com/19920513/djy/blob/master/gb/23/7/18/n14037020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海六名青壮年教授律师病亡 五人为中共党员 >-009fcc?logoWidth=1" title="上海六名青壮年教授律师病亡　五人为中共党>>" alt="上海六名青壮年教授律师病亡　五人为中共党>>"></a></p>
 <p><a href="https://github.com/19920513/djy/blob/master/gb/23/7/18/n14036897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅狠整秦刚？传赵立坚是王心腹       >-009fcc?logoWidth=1" title="王毅狠整秦刚？传赵立坚是王心腹　　　　　>>" alt="王毅狠整秦刚？传赵立坚是王心腹　　　　　>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/19/a103751202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国女子东京街头发飙 辱骂踢踹日本警察（视频>-009fcc?logoWidth=1" title="中国女子东京街头发飙　辱骂踢踹日本警察（>>" alt="中国女子东京街头发飙　辱骂踢踹日本警察（>>"></a></p>
 <p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/07/18/a103750737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“养狼”受挫 专家：秦刚若出事将让习难>-009fcc?logoWidth=1" title="习近平＂养狼＂受挫　专家：秦刚若出事将让>>" alt="习近平＂养狼＂受挫　专家：秦刚若出事将让>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -268,10 +267,10 @@
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 
 <h1><strong>其它的真相媒体</strong></h1>
-<details><summary><a target="_blank" href="http://111.240.223.136/Cy4GK?xdupb">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://111.240.223.136/GnoF?iylve">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<details><summary><a target="_blank" href="http://111.240.223.136/Cy4GK?cjcxq">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://111.240.223.136/GnoF?qgick">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pgcmc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hogzk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -315,16 +314,16 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pyntt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mdmyk">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qsqxn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jvncv">明慧特刊</a></p>
 </details>
 
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
-<a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?hyqrt" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
-<p><details><summary><a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?tcnyt" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?kxxlf" title="分享本平台"></img><br>
+<a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?bjlvh" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
+<p><details><summary><a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?vosot" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?imqdr" title="分享本平台"></img><br>
 伪火视频二维码
 </details>
 <p><a href="https://gitlab.com/tui590285/vdjiangfa/-/raw/master/public/jiangfa.mp4" target="_blank"><img width="600" height="80" src="https://img.shields.io/badge/法轮功创始人发表《为什么会有人类》-4a154b?logo=youtube" title="法轮功创始人发表《为什么会有人类》　　　　　　　　　" alt="法轮功创始人发表《为什么会有人类》　　　　　　　　　"></a></p>
@@ -409,12 +408,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/19920513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/19920513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/19920513/www/blob/master/README.md?u#1<br>
-<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?y" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/iiiss" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?s%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/19920513/www/blob/master/README.md?q#1<br>
+<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?j" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/jjmjj" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?l%231" title="分享本平台"></img>
 <br>
-<a href="https://tinyurl.com/k7777">tinyurl.com/iikii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jjeee">tinyurl.com/j5555</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/iiiib">tinyurl.com/dddkk</a>
+<a href="https://tinyurl.com/iiiff">tinyurl.com/gggge</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/kkkaa">tinyurl.com/jjjss</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/hhyhh">tinyurl.com/j4444</a>
 <br>
 <br>
-<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?n#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tui590285/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fy%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fy%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
+<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?z#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/19920513/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fb%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
 </div>
