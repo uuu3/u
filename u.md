@@ -9,45 +9,45 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/www.jpg"></a><br>
-<p><details><summary>掛怢傻厙硊:&nbsp;&nbsp;<a href="https://tinyurl.com/h5555">tinyurl.com/jqqqq</a>&nbsp;&nbsp;厥哿彶艘<a href="#8">狟婥楹璃</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?r%231" title="煦砅掛怢"></img><br>
-掛怢媼峎鎢
+<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/eeuuu">tinyurl.com/ffffe</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?d%231" title="分享本平台"></img><br>
+本平台二维码
 </details>
 
-彆湖祥羲ㄛ路珨頗嫁婬芃陔珨狟﹝
+如果打不开，隔一会儿再刷新一下。
 
 <br>
-<h1><p><strong>陔恓萸 漆俋惆耋</strong></p></h1>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/樟陔夢綴※弊捗朒§婬奻刲        >-009fcc?logoWidth=1" title="樟陔夢綴ㄑ弊捗朒ㄑ婬奻刲﹛﹛﹛﹛﹛﹛>>" alt="樟陔夢綴ㄑ弊捗朒ㄑ婬奻刲﹛﹛﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/笢弊箝湮惇濘綴 勍模荂笙蜓眒坫阨90    >-009fcc?logoWidth=1" title="笢弊箝湮惇濘綴﹛勍模荂笙蜓眒坫阨ㄨㄟ﹛﹛>>" alt="笢弊箝湮惇濘綴﹛勍模荂笙蜓眒坫阨ㄨㄟ﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圇棄ㄩ秕桲嚃蜓偶傖刲 薯偭鞣睡奀倎ˋ  >-009fcc?logoWidth=1" title="圇棄ㄩ秕桲嚃蜓偶傖刲﹛薯偭鞣睡奀倎ˋ>>" alt="圇棄ㄩ秕桲嚃蜓偶傖刲﹛薯偭鞣睡奀倎ˋ>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/樓褪悝模擇笢僕詢郇 課贈※桸躁習謹§  >-009fcc?logoWidth=1" title="樓褪悝模擇笢僕詢郇﹛課贈ㄑ桸躁習謹ㄑ>>" alt="樓褪悝模擇笢僕詢郇﹛課贈ㄑ桸躁習謹ㄑ>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/20/n14077253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/竊欄苤赽曹栠嫖爛 凰粔貌砡傖酗暮     >-009fcc?logoWidth=1" title="竊欄苤赽曹栠嫖爛﹛凰粔貌砡傖酗暮﹛﹛﹛>>" alt="竊欄苤赽曹栠嫖爛﹛凰粔貌砡傖酗暮﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/炾輪涳蔬婬滌※僕肮蜓啥§ 煦昴ㄩ酕桶醱恅梒>-009fcc?logoWidth=1" title="炾輪涳蔬婬滌ㄑ僕肮蜓啥ㄑ﹛煦昴ㄩ酕桶醱>>" alt="炾輪涳蔬婬滌ㄑ僕肮蜓啥ㄑ﹛煦昴ㄩ酕桶醱>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/23/n14079966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/360糧湮呇誠蝠垀熬厥 煦昴ㄩ鍔芘訧氪祭 >-009fcc?logoWidth=1" title="ㄢㄥㄟ糧湮呇誠蝠垀熬厥﹛煦昴ㄩ鍔芘訧氪>>" alt="ㄢㄥㄟ糧湮呇誠蝠垀熬厥﹛煦昴ㄩ鍔芘訧氪>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/貌呏嗨DC楊謫髡悝埜撼俴党褻陑腕蝠霜頗   >-009fcc?logoWidth=1" title="貌呏嗨??楊謫髡悝埜撼俴党褻陑腕蝠霜頗﹛>>" alt="貌呏嗨??楊謫髡悝埜撼俴党褻陑腕蝠霜頗﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澈淏婓藝弊郣善腔儐珨躉          >-009fcc?logoWidth=1" title="澈淏婓藝弊郣善腔儐珨躉﹛﹛﹛﹛﹛﹛﹛﹛>>" alt="澈淏婓藝弊郣善腔儐珨躉﹛﹛﹛﹛﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/笢弊逋衪絨巹萵抎暮﹜翋炟麻剚埭掩咂   >-009fcc?logoWidth=1" title="笢弊逋衪絨巹萵抎暮﹜翋炟麻剚埭掩咂﹛>>" alt="笢弊逋衪絨巹萵抎暮﹜翋炟麻剚埭掩咂﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/※笢弊寡嗷§呏錶祥婬 誰芛﹜妀部濮屾  >-009fcc?logoWidth=1" title="ㄑ笢弊寡嗷ㄑ呏錶祥婬﹛誰芛﹜妀部濮屾>>" alt="ㄑ笢弊寡嗷ㄑ呏錶祥婬﹛誰芛﹜妀部濮屾>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/厙馴滓斂 蚳模ㄩ俶萸岆郔湮穢韌   >-009fcc?logoWidth=1" title="厙馴滓斂﹛蚳模ㄩ俶萸岆郔湮穢韌﹛>>" alt="厙馴滓斂﹛蚳模ㄩ俶萸岆郔湮穢韌﹛>>"></a></p>
-<details><summary>載嗣....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坒淏璨旃楷堤陔瓷馮ㄩ鍚珨部砮謁惇楷    >-009fcc?logoWidth=1" title="坒淏璨旃楷堤陔瓷馮ㄩ鍚珨部砮謁惇楷﹛﹛>>" alt="坒淏璨旃楷堤陔瓷馮ㄩ鍚珨部砮謁惇楷﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103792045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/炾奻怢崠創霾淉笥蜊賂 悵絨誹疪玸噫   >-009fcc?logoWidth=1" title="炾奻怢崠創霾淉笥蜊賂﹛悵絨誹疪玸噫﹛>>" alt="炾奻怢崠創霾淉笥蜊賂﹛悵絨誹疪玸噫﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忳箝湮迍濛 笢弊華莉嘖泐阨 芘訧陓陑腴  >-009fcc?logoWidth=1" title="忳箝湮迍濛﹛笢弊華莉嘖泐阨﹛芘訧陓陑腴>>" alt="忳箝湮迍濛﹛笢弊華莉嘖泐阨﹛芘訧陓陑腴>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/僕濂菩祑都 藝嗣盄妗桵趙窒扰       >-009fcc?logoWidth=1" title="僕濂菩祑都﹛藝嗣盄妗桵趙窒扰﹛﹛﹛﹛﹛>>" alt="僕濂菩祑都﹛藝嗣盄妗桵趙窒扰﹛﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103791944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/氃呇惇儐杅趼 笢弊砮爛祫屾侚3砬  >-009fcc?logoWidth=1" title="氃呇惇儐杅趼﹛笢弊砮爛祫屾侚ㄢ砬>>" alt="氃呇惇儐杅趼﹛笢弊砮爛祫屾侚ㄢ砬>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103791943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/箝湮啊擭 赻寰耀宒霜莉           >-009fcc?logoWidth=1" title="箝湮啊擭﹛赻寰耀宒霜莉﹛﹛﹛﹛﹛﹛﹛﹛﹛>>" alt="箝湮啊擭﹛赻寰耀宒霜莉﹛﹛﹛﹛﹛﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埣鰍衄※湮雄釬§ˋ 羲楷郔湮洁芩鄴部    >-009fcc?logoWidth=1" title="埣鰍衄ㄑ湮雄釬ㄑˋ﹛羲楷郔湮洁芩鄴部﹛﹛>>" alt="埣鰍衄ㄑ湮雄釬ㄑˋ﹛羲楷郔湮洁芩鄴部﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栝弝紾濂※俶玊§偶雪咂 謗湮埻秪嫖   >-009fcc?logoWidth=1" title="栝弝紾濂ㄑ俶玊ㄑ偶雪咂﹛謗湮埻秪嫖﹛>>" alt="栝弝紾濂ㄑ俶玊ㄑ偶雪咂﹛謗湮埻秪嫖﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/笢善 笢僕秶婖腔扈曄婓笭栳        >-009fcc?logoWidth=1" title="笢善﹛笢僕秶婖腔扈曄婓笭栳﹛﹛﹛﹛﹛﹛>>" alt="笢善﹛笢僕秶婖腔扈曄婓笭栳﹛﹛﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韁襠夥埜貌蔡趕ㄩ韁笢壽炵揭衾坋趼繚諳   >-009fcc?logoWidth=1" title="韁襠夥埜貌蔡趕ㄩ韁笢壽炵揭衾坋趼繚諳﹛>>" alt="韁襠夥埜貌蔡趕ㄩ韁笢壽炵揭衾坋趼繚諳﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怢濂岈蚳模惇笢僕腦膘濂薯窒扰砆      >-009fcc?logoWidth=1" title="怢濂岈蚳模惇笢僕腦膘濂薯窒扰砆﹛﹛﹛﹛>>" alt="怢濂岈蚳模惇笢僕腦膘濂薯窒扰砆﹛﹛﹛﹛>>"></a></p>
-<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/炾輪膛硌怮赽絨ˋ腌源堤擁 燠奾腦囮趿  >-009fcc?logoWidth=1" title="炾輪膛硌怮赽絨ˋ腌源堤擁﹛燠奾腦囮趿>>" alt="炾輪膛硌怮赽絨ˋ腌源堤擁﹛燠奾腦囮趿>>"></a></p>
-<details><summary>載嗣....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继新冠后“全国咽炎”再上热搜        >-009fcc?logoWidth=1" title="继新冠后＂全国咽炎＂再上热搜　　　　　　>>" alt="继新冠后＂全国咽炎＂再上热搜　　　　　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国恒大爆雷后 许家印财富已缩水90    >-009fcc?logoWidth=1" title="中国恒大爆雷后　许家印财富已缩水９０　　>>" alt="中国恒大爆雷后　许家印财富已缩水９０　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：嚣张炫富案成热搜 权力傲慢何时休？  >-009fcc?logoWidth=1" title="袁斌：嚣张炫富案成热搜　权力傲慢何时休？>>" alt="袁斌：嚣张炫富案成热搜　权力傲慢何时休？>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加科学家拒中共高薪聘请 揭秘“招募策略”  >-009fcc?logoWidth=1" title="加科学家拒中共高薪聘请　揭秘＂招募策略＂>>" alt="加科学家拒中共高薪聘请　揭秘＂招募策略＂>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/20/n14077253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叛逆小子变阳光青年 澳洲华裔成长记     >-009fcc?logoWidth=1" title="叛逆小子变阳光青年　澳洲华裔成长记　　　>>" alt="叛逆小子变阳光青年　澳洲华裔成长记　　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平浙江再喊“共同富裕” 分析：做表面文章>-009fcc?logoWidth=1" title="习近平浙江再喊＂共同富裕＂　分析：做表面>>" alt="习近平浙江再喊＂共同富裕＂　分析：做表面>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/23/n14079966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/360鲁大师港交所减持 分析：令投资者却步 >-009fcc?logoWidth=1" title="３６０鲁大师港交所减持　分析：令投资者却>>" alt="３６０鲁大师港交所减持　分析：令投资者却>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华盛顿DC法轮功学员举行修炼心得交流会   >-009fcc?logoWidth=1" title="华盛顿ＤＣ法轮功学员举行修炼心得交流会　>>" alt="华盛顿ＤＣ法轮功学员举行修炼心得交流会　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美国遇到的惊人一幕          >-009fcc?logoWidth=1" title="韩正在美国遇到的惊人一幕　　　　　　　　>>" alt="韩正在美国遇到的惊人一幕　　　　　　　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国足协前党委副书记、主席陈戌源被起诉   >-009fcc?logoWidth=1" title="中国足协前党委副书记、主席陈戌源被起诉　>>" alt="中国足协前党委副书记、主席陈戌源被起诉　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中国硅谷”盛况不再 街头、商场冷清人少  >-009fcc?logoWidth=1" title="＂中国硅谷＂盛况不再　街头、商场冷清人少>>" alt="＂中国硅谷＂盛况不再　街头、商场冷清人少>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14080715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球网攻泛滥 专家：人性弱点是最大漏洞   >-009fcc?logoWidth=1" title="全球网攻泛滥　专家：人性弱点是最大漏洞　>>" alt="全球网攻泛滥　专家：人性弱点是最大漏洞　>>"></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“核酸巨头”张核子传涉足预制菜 背后势力引关>-009fcc?logoWidth=1" title="＂核酸巨头＂张核子传涉足预制菜　背后势力>>" alt="＂核酸巨头＂张核子传涉足预制菜　背后势力>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石正丽研发出新病毒：另一场疫情恐爆发    >-009fcc?logoWidth=1" title="石正丽研发出新病毒：另一场疫情恐爆发　　>>" alt="石正丽研发出新病毒：另一场疫情恐爆发　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受恒大拖累 中国地产股跳水 投资人信心低  >-009fcc?logoWidth=1" title="受恒大拖累　中国地产股跳水　投资人信心低>>" alt="受恒大拖累　中国地产股跳水　投资人信心低>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军敌情异常 美多线实战化部署       >-009fcc?logoWidth=1" title="共军敌情异常　美多线实战化部署　　　　　>>" alt="共军敌情异常　美多线实战化部署　　　　　>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103792045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习上台前曾承诺政治改革 保党情节陷险境   >-009fcc?logoWidth=1" title="习上台前曾承诺政治改革　保党情节陷险境　>>" alt="习上台前曾承诺政治改革　保党情节陷险境　>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103791944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/入殓师爆惊人数字 中国疫情三年至少死3亿  >-009fcc?logoWidth=1" title="入殓师爆惊人数字　中国疫情三年至少死３亿>>" alt="入殓师爆惊人数字　中国疫情三年至少死３亿>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/26/a103791943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大摆烂 自救模式流产           >-009fcc?logoWidth=1" title="恒大摆烂　自救模式流产　　　　　　　　　>>" alt="恒大摆烂　自救模式流产　　　　　　　　　>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南有“大动作”？ 开发最大稀土矿场    >-009fcc?logoWidth=1" title="越南有＂大动作＂？　开发最大稀土矿场　　>>" alt="越南有＂大动作＂？　开发最大稀土矿场　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/26/n14081290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中秋到 中共制造的悲剧在重演        >-009fcc?logoWidth=1" title="中秋到　中共制造的悲剧在重演　　　　　　>>" alt="中秋到　中共制造的悲剧在重演　　　　　　>>"></a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/23/9/25/n14081030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟官员清华讲话：欧中关系处于十字路口   >-009fcc?logoWidth=1" title="欧盟官员清华讲话：欧中关系处于十字路口　>>" alt="欧盟官员清华讲话：欧中关系处于十字路口　>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视朱军“性骚扰”案撤诉 两大原因曝光   >-009fcc?logoWidth=1" title="央视朱军＂性骚扰＂案撤诉　两大原因曝光　>>" alt="央视朱军＂性骚扰＂案撤诉　两大原因曝光　>>"></a></p>
+<p><a href="https://github.com/19920513/ntdtv/blob/master/gb/2023/09/25/a103791732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台军事专家爆中共福建军力部署详情      >-009fcc?logoWidth=1" title="台军事专家爆中共福建军力部署详情　　　　>>" alt="台军事专家爆中共福建军力部署详情　　　　>>"></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
-<br><p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1351518.md#1">湮槨啋雄怓忑珜</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204.md#1">陔昄雄怓忑珜</a></p>
+<br><p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a></p>
 </details>
 </details>
 </details>
@@ -56,363 +56,363 @@
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
-<h1><p><strong>轎煤楹璃狟婥</strong></p></h1>
-蟯伎﹜假﹜轎煤ㄛ堆蠟壺厙釐猾輦ㄛ珨瑩奻俋厙﹝<br>
+<h1><p><strong>免费翻墙软件下载</strong></p></h1>
+绿色、安全、免费，帮您破除网络封禁，一键上外网。<br>
 
-<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmj.apk">朸笣隴獗&nbsp;ㄗ假袗唳ㄘ</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmjweb.zip">朸笣隴獗ㄗ厙珜唳ㄘ</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmjtv.apk">朸笣隴獗ㄗ萇弝儂階碟唳ㄘ</a></p>
+<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmj.apk">神州明见&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmjweb.zip">神州明见（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/szmjtv.apk">神州明见（电视机顶盒版）</a></p>
 </details>
-<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip">赻蚕藷&thinsp;&nbsp;&nbsp;&nbsp;&nbsp;ㄗ萇齟唳ㄘ</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgma.apk">赻蚕藷&thinsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ㄗ假袗唳ㄘ</a></p>
+<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgma.apk">自由门&thinsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a></p>
 </details>
-<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgvpn.apk">赻蚕藷VPN(假袗唳ㄘ</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/iPPOTV.zip">乾痔萇弝&nbsp;&nbsp;&nbsp;ㄗ萇齟唳ㄘ</a></p>
+<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgvpn.apk">自由门VPN(安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/iPPOTV.zip">爱博电视&nbsp;&nbsp;&nbsp;（电脑版）</a></p>
 </details>
-<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/u.zip">拸賜銡擬&nbsp;ㄗ萇齟唳ㄘ</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/um.apk">拸賜銡擬ㄗ假袗唳ㄘ</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/u.apk">拸賜VPNㄗ假袗唳ㄘ</a></p>
+<p><details><summary><a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/u.zip">无界浏览&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/um.apk">无界浏览（安卓版）</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/u.apk">无界VPN（安卓版）</a></p>
 </details>
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 
-<h1><p><strong>弊囀艘祥善腔陔恓肮祭</strong></p></h1>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1351518.md#1">湮槨啋雄怓忑珜</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nscrw413.md#1">陔恓齬俴</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4514.md#1">芛沭摩踞</a></p>
+<h1><p><strong>国内看不到的新闻同步</strong></p></h1>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nscrw413.md#1">新闻排行</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4514.md#1">头条集锦</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1">湮槨啋湮翻奀岈</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid278.md#1">笢弊</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid283.md#1">笢弊冪撳</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid277.md#1">湮翻淉笥</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid282.md#1">扦頗勀砓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid281.md#1">褪諒恅趙</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2420.md#1">厙恓輦恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid279.md#1">极岈璃</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid280.md#1">毞婐儀</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1">大纪元大陆时事</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid278.md#1">中国人权</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid283.md#1">中国经济</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid277.md#1">大陆政治</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid282.md#1">社会万象</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid281.md#1">科教文化</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2420.md#1">网闻禁闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid279.md#1">群体事件</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid280.md#1">天灾人祸</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/n24hr.md#1">湮槨啋萸</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4786.md#1">朸婘挐栳</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news2008.md#1">汜魂秏煤</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncyule.md#1">軓氈倎玿</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc1002.md#1">翩艙1+1&nbsp;</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/n24hr.md#1">大纪元全球热点</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4786.md#1">神韵巡演</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news2008.md#1">生活消费</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncyule.md#1">娱乐休闲</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc1002.md#1">健康1+1&nbsp;</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news392.md#1">湮槨啋奀岈蹦</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6092.md#1"> 黃模弝褒</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news392.md#1">大纪元时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6092.md#1"> 独家视角</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news2007.md#1">湮槨啋換苀恅趙</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><details><summary>恅趙啃褪&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1982.md#1">恅趙痔擬</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1981.md#1">靡吨嘉慫</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1185978.md#1">韜燴挕扲</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1185977.md#1">鏍匋恅趙</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/news2007.md#1">大纪元传统文化</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary>文化百科&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1982.md#1">文化博览</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1981.md#1">名胜古迹</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1185978.md#1">命理武术</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1185977.md#1">民俗文化</a></p>
 </details>
-<p><details><summary>汜韜抻坰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2005.md#1">汜韜眳譏</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2000.md#1">岍踏汜</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1999.md#1">奀諾抻坰</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1996.md#1">极党褻</a></p>
+<p><details><summary>生命探索&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2005.md#1">生命之谜</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2000.md#1">前世今生</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1999.md#1">时空探索</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1996.md#1">人体修炼</a></p>
 </details>
-<p><details><summary>妢漆像麥&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid238.md#1">盪測靡</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2006.md#1">盪妢抻埭</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1190478.md#1">牉佽盪妢</a></p>
+<p><details><summary>史海钩沉&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid238.md#1">历代名人</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2006.md#1">历史探源</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1190478.md#1">细说历史</a></p>
 </details>
-<p><details><summary>啎晟換&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid325.md#1">啎晟毞砓</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1998.md#1">恅隴抻躇</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1055.md#1">換換佽</a></p>
+<p><details><summary>预言传奇&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid325.md#1">预言天象</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1998.md#1">文明探密</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1055.md#1">传奇传说</a></p>
 </details>
-<p><details><summary>恅悝岍賜&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid256.md#1">羲橙衄腕</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid255.md#1">苤佽湮夤</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid254.md#1">汃恅呴捩</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid253.md#1">坅棵貉</a></p>
+<p><details><summary>文学世界&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid256.md#1">开卷有得</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid255.md#1">小说大观</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid254.md#1">散文随笔</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid253.md#1">诗词歌曲</a></p>
 </details>
-<p><details><summary>汜覜昳&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1096.md#1">陑鍾栠嫖</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1095.md#1">潔淩</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1093.md#1">覜昳汜</a></p>
+<p><details><summary>人生感悟&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1096.md#1">心灵阳光</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1095.md#1">人间真情</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1093.md#1">感悟人生</a></p>
 </details>
-<p><details><summary>昜景&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid287.md#1">珋測嘟岈</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid286.md#1">褉煌昜</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid285.md#1">絞測靡</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2012.md#1">冪萎靡</a></p>
+<p><details><summary>人物春秋&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid287.md#1">现代故事</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid286.md#1">缤纷人物</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid285.md#1">当代名人</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2012.md#1">经典名人</a></p>
 </details>
-<p><details><summary>恅悝奼昴&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2360.md#1">抎抎趕</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2349.md#1">坅冪牖奼</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2292.md#1">靡晟踞曆</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1088.md#1">昄坅牖奼</a></p>
+<p><details><summary>文学赏析&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2360.md#1">书评书话</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2349.md#1">诗经鉴赏</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2292.md#1">名言锦句</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid1088.md#1">唐诗鉴赏</a></p>
 </details>
-<p><details><summary>眙漆鞦蚔&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid265.md#1">眙扲汜魂</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid264.md#1">桶栳眙扲</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid263.md#1">笢昹捇氈</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid262.md#1">藝扲酗檀</a></p>
+<p><details><summary>艺海漫游&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid265.md#1">艺术生活</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid264.md#1">表演艺术</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid263.md#1">中西雅乐</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid262.md#1">美术长廊</a></p>
 </details>
-<p><details><summary>諒郤埶華&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2380.md#1">悝汜埶華</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid187.md#1">庤魂雄</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid186.md#1">嘟岈萸畦</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid185.md#1">軗輛苺埶</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid184.md#1">悝炾埶華</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid183.md#1">模穸諒郤</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid182.md#1">諒郤雄怓</a></p>
+<p><details><summary>教育园地&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</summary></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid2380.md#1">学生园地</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid187.md#1">趣味活动</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid186.md#1">故事点播</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid185.md#1">走进校园</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid184.md#1">学习园地</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid183.md#1">家庭教育</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/ncid182.md#1">教育动态</a></p>
 </details>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204.md#1">陔昄雄怓忑珜</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/headline-news_1.md#1">芛沭猁恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog208_1.md#1">笙冪陔恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog209_1.md#1">褪諒陔恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog210_1.md#1">軓氈陔恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog211_1.md#1">极郤陔恓</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/headline-news_1.md#1">头条要闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog208_1.md#1">财经新闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog209_1.md#1">科教新闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog210_1.md#1">娱乐新闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog211_1.md#1">体育新闻</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204_1.md#1">陔昄湮翻陔恓</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1135_1.md#1">湮翻</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/culture-world_1.md#1">痔擬毞狟</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/442749_1.md#1">煎朒砮</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1745_1.md#1">笢藝籀眢桵</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog204_1.md#1">新唐人大陆新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1135_1.md#1">大陆人权</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/culture-world_1.md#1">博览天下</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/442749_1.md#1">肺炎疫情</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1745_1.md#1">中美贸易战</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog202_1.md#1">陔昄弊暱陔恓</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog203_1.md#1">藝弊陔恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog206_1.md#1">怢俜陔恓</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog205_1.md#1">誠凰陔恓</a></p>
-</details>
-
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog207_1.md#1">陔昄奀岈蹦</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/editor-pickup_1.md#1">晤憮芢熱</a></p>
-</details>
-<img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
-
-<h1><p><strong>湮翻鏍汜迵</strong></p></h1>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5779.md#1">笢弊奀擁賤昴</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5772.md#1">鏍蕨惟</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5773.md#1">怜葛窋觴</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5774.md#1">詢脯填須</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5775.md#1">濂源祑雄</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5776.md#1">漲淩眈</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5777.md#1">毞躑埳</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5778.md#1">弊暱壽蛁</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5779.md#1">跪賜佽</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog202_1.md#1">新唐人国际新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog203_1.md#1">美国新闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog206_1.md#1">台湾新闻</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog205_1.md#1">港澳新闻</a></p>
 </details>
 
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176117.md#1">僕莉絨啃爛淩眈</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176114.md#1">輓恅趙</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176115.md#1">欽蜊盪妢</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176118.md#1">秶婖嬪</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176106.md#1">伀盪妢</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176107.md#1">絨錄賒</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176111.md#1">漲儕荎</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176117.md#1">闖弊填俴</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1704_1.md#1">啃爛綻儀</a></p>
-</details>
-<details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog447_1.md#1">課笢僕魂晡夥</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5877.md#1">岈璃惆絳</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5878.md#1">跪賜毀砒</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5881.md#1">婈郣暮翹</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5882.md#1">填靡翹</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5883.md#1">郔陔魂雄</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5947.md#1">弊暱覃脤</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5948.md#1">毽坌窪躉</a></p>
-</details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5790.md#1">壽蛁楊謫髡淩眈</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5792.md#1">笢僕婖樑</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5562.md#1">帢鳶淩眈</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4378.md#1">都獗恀枙</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4386.md#1">扦頗盓厥</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6119.md#1">跪弊婪蔣</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5735.md#1">謗偉勤掀</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6120.md#1">鏍笲汒堔</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf3180.md#1">漆俋精換</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1188594.md#1">麵咭暮砪</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5410.md#1">勀奻溼</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4389.md#1">淩眈杻憮</a></p>
-</details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6124.md#1">妗靡咂蔬屙鏍</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6124.md#1">湮翻諷豢</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6125.md#1">漆俋諷豢</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6126.md#1">鏍笲汒堔</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6127.md#1">跪弊汒堔</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6148.md#1">漲填俴</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6149.md#1">跪賜蹦</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6150.md#1">楊薺甡擂</a></p>
-</details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/9p.md#1">嬝迵豖湮陰</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5657.md#1">豖儕恁</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc1030.md#1">豖蹦</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf3046.md#1">嬝豖</a></p>
-</details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog422209_1.md#1">袚脤漲氪</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/mh/mhtg.md#1">▲隴雌厙籵豢◎</a></p>
-<p><a href="https://github.com/19920513/djy/blob/master/gb/nf1320400.md#1">笢僕腔潔証峉儂</a></p>
-<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/rq.md#1">銡擬珛輛</a></p>
-</details>
-<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog452866_1.md#1">湮恔砮笢腔寰抏</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448635_1.md#1">湮翻砮</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448637_1.md#1">煦昴蹦</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog446729_1.md#1">瓷馮抻埭</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448631_1.md#1">渀勤笢僕</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448638_1.md#1">睡滅笥</a></p>
-<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448636_1.md#1">妢奻恔砮</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog207_1.md#1">新唐人时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/editor-pickup_1.md#1">编辑推荐</a></p>
 </details>
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 
-<h1><strong>坳腔淩眈羸极</strong></h1>
-<details><summary><a target="_blank" href="http://1.169.83.127/Cy4GK?szwet">雄怓厙</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://1.169.83.127/GnoF?iadqy">隴雌厙</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<h1><p><strong>大陆民生与人权</strong></p></h1>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5779.md#1">中国时局全解析</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5772.md#1">全民抗暴</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5773.md#1">贪腐淫乱</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5774.md#1">高层恶斗</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5775.md#1">军方异动</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5776.md#1">迫害真相</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5777.md#1">天怒人怨</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5778.md#1">国际关注</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5779.md#1">各界评说</a></p>
+</details>
+
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176117.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176115.md#1">窜改历史</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176118.md#1">制造贫困</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176106.md#1">杀人历史</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176107.md#1">党魁画皮</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176111.md#1">迫害精英</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1176117.md#1">卖国恶行</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog1704_1.md#1">百年红祸</a></p>
+</details>
+<details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog447_1.md#1">揭中共活摘器官</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5877.md#1">事件报导</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5878.md#1">各界反响</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5881.md#1">遭遇记录</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5882.md#1">恶人名录</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5883.md#1">最新活动</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5947.md#1">国际调查</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5948.md#1">贩尸黑幕</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5790.md#1">关注法轮功真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5792.md#1">中共造假</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5562.md#1">伪火真相</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4378.md#1">常见问题</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4386.md#1">社会支持</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6119.md#1">各国褒奖</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5735.md#1">两岸对比</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6120.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf3180.md#1">海外弘传</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf1188594.md#1">难忘记忆</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5410.md#1">万人上访</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf4389.md#1">真相特辑</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6124.md#1">实名起诉江泽民</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6124.md#1">大陆控告</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6125.md#1">海外控告</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6126.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6127.md#1">各国声援</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6148.md#1">迫害恶行</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/9p.md#1">九评与三退大潮</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf5657.md#1">三退精选</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc1030.md#1">三退评论</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nf3046.md#1">九评三退</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog422209_1.md#1">追查人权迫害者</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/mh/mhtg.md#1">《明慧网通告》</a></p>
+<p><a href="https://github.com/19920513/djy/blob/master/gb/nf1320400.md#1">中共的间谍危机</a></p>
+<p><a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/rq.md#1">浏览器企业请进</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog452866_1.md#1">大瘟疫中的救赎</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448635_1.md#1">大陆疫情</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448637_1.md#1">分析评论</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog446729_1.md#1">病毒探源</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448631_1.md#1">针对中共</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448638_1.md#1">如何防治</a></p>
+<p><a target="_blank" href="https://github.com/19920513/ntdtv/blob/master/gb/prog448636_1.md#1">史上瘟疫</a></p>
+</details>
+<img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
+
+<h1><strong>其它的真相媒体</strong></h1>
+<details><summary><a target="_blank" href="http://36.229.106.215/Cy4GK?iqstn">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://36.229.106.215/GnoF?xewjt">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rpfwx">坳腔陔恓肮祭</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<details><summary>艘笢弊陔恓厙</summary>
-<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘湮翻.md?t=02121122">艘湮翻</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘夥部.md?t=02121122">艘夥部</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘鏍汜.md?t=02121122">艘鏍汜</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘痔抶.md?t=02121122">艘痔抶</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘笙冪.md?t=02121122">艘笙冪</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘妢漆.md?t=02121122">艘妢漆</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘恅趙.md?t=02121122">艘恅趙</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘汜魂.md?t=02121122">艘汜魂</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S艘岍賜.md?t=02121122">艘岍賜</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lwrgj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<details><summary>看中国新闻网</summary>
+<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看民生.md?t=02121122">看民生</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看博谈.md?t=02121122">看博谈</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看财经.md?t=02121122">看财经</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看史海.md?t=02121122">看史海</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看文化.md?t=02121122">看文化</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看生活.md?t=02121122">看生活</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看世界.md?t=02121122">看世界</a></p>
 </details>
-<details><summary>洷咡眳汒SOH</summary>
-<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E5%8E%86%E5%8F%B2.md?t=06141602">盪妢</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E6%96%87%E5%8C%96.md?t=06141602">恅趙</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E4%B8%AA%E4%BA%BA%E8%AF%84%E8%AE%BA.md?t=06141602">跺蹦</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E8%BF%91%E6%9C%9F%E7%83%AD%E7%82%B9.md?t=06141602">輪萸</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E8%B4%A2%E7%BB%8F%E6%96%B0%E9%97%BB.md?t=06141602">笙冪陔恓</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E6%B8%AF%E5%8F%B0%E6%96%B0%E9%97%BB.md?t=06141602">誠怢陔恓</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E4%B8%AD%E5%9B%BD%E6%96%B0%E9%97%BB.md?t=06141602">笢弊陔恓</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E5%8C%97%E7%BE%8E%E6%96%B0%E9%97%BB.md?t=06141602">控藝陔恓</a></p>
+<details><summary>希望之声SOH</summary>
+<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E5%8E%86%E5%8F%B2.md?t=06141602">历史</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E6%96%87%E5%8C%96.md?t=06141602">文化</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E4%B8%AA%E4%BA%BA%E8%AF%84%E8%AE%BA.md?t=06141602">个人评论</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E8%BF%91%E6%9C%9F%E7%83%AD%E7%82%B9.md?t=06141602">近期热点</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E8%B4%A2%E7%BB%8F%E6%96%B0%E9%97%BB.md?t=06141602">财经新闻</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E6%B8%AF%E5%8F%B0%E6%96%B0%E9%97%BB.md?t=06141602">港台新闻</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E4%B8%AD%E5%9B%BD%E6%96%B0%E9%97%BB.md?t=06141602">中国新闻</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/H%E5%8C%97%E7%BE%8E%E6%96%B0%E9%97%BB.md?t=06141602">北美新闻</a></p>
 </details>
-<details><summary>赻蚕捚粔萇怢</summary>
-<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R捚怮惆耋.md?t=02121122">捚怮惆耋</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R笢弊珨笚.md?t=02121122">笢弊珨笚</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R笢弊芵弝.md?t=02121122">笢弊芵弝</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R弊暱弝褒.md?t=02121122">弊暱弝褒</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R珗趕笢鰍漆.md?t=02121122">珗趕笢鰍漆</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R祥肮腔汒秞.md?t=02121122">祥肮腔汒秞</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R杻埮蹦.md?t=02121122">杻埮蹦</a></p>
+<details><summary>自由亚洲电台</summary>
+<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R亚太报道.md?t=02121122">亚太报道</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R中国一周.md?t=02121122">中国一周</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R中国透视.md?t=02121122">中国透视</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R国际视角.md?t=02121122">国际视角</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R夜话中南海.md?t=02121122">夜话中南海</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R不同的声音.md?t=02121122">不同的声音</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/R特约评论.md?t=02121122">特约评论</a></p>
 </details>
-<details><summary>隴雌漆俋眳敦</summary>
-<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/328.md?t=02260800">漲偶瞰軘扴</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/277.md?t=02260800">漲祡侚偶瞰</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/81.md?t=02260800">載嗣漲偶瞰</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/251.md?t=02260800">奀岈蹦</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/245.md?t=02260800">漆俋潠捅</a></p>
- <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/140.md?t=02260800">扦頗盓厥</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/282.md?t=02260800">婪蔣樵祜</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/91.md?t=02260800">扦惆耋</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/78.md?t=02260800">毞眳潔</a></p>
+<details><summary>明慧海外之窗</summary>
+<br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/328.md?t=02260800">迫害案例综述</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/277.md?t=02260800">迫害致死案例</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/81.md?t=02260800">更多迫害案例</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/251.md?t=02260800">时事评论</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/245.md?t=02260800">海外简讯</a></p>
+ <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/140.md?t=02260800">社会支持</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/282.md?t=02260800">褒奖决议</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/91.md?t=02260800">社区报道</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/mh-news/blob/master/indexes/78.md?t=02260800">天人之间</a></p>
 </details>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">婓盄艘隴雌膳</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kestr">隴雌膳</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hvgjq">隴雌杻膳</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uihdb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wsnal">明慧特刊</a></p>
 </details>
 
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
-<h1><p><strong>淩眈弝</strong></p></h1>
-<a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?ocacx" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
-<p><details><summary><a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?kztvo" target="_blank">傻弝 : 帢鳶擁--艘笢僕睡婖樑</a> :arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?pdcpr" title="煦砅掛怢"></img><br>
-帢鳶弝媼峎鎢
+<h1><p><strong>真相视频</strong></p></h1>
+<a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?kkzjm" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
+<p><details><summary><a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?lisws" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?pceut" title="分享本平台"></img><br>
+伪火视频二维码
 </details>
-<a href="https://gitlab.com/Dillonghk/vdpzNgjXjVPm/raw/master/public/pzNgjXjVPm.mp4?hqqxp" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/pzNgjXjVPm.jpg" title="砮玸﹛佼毞悵韜衄淩晟﹛﹛﹛﹛﹛" alt="砮玸﹛佼毞悵韜衄淩晟﹛﹛﹛﹛﹛"></a>
-<a href="https://gitlab.com/Dillonmkc/vdgushi-h/raw/master/public/gushi-h.mp4?auafy" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/gushi-h.jpg" title="湮恔砮笢腔祑嘟岈ㄗ弝ㄘ﹛﹛﹛" alt="湮恔砮笢腔祑嘟岈ㄗ弝ㄘ﹛﹛﹛"></a>
-<a href="https://gitlab.com/Doloresank/vdguanguimin/raw/master/public/guanguimin.mp4?mvfue" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guanguimin.jpg" title="傻弝ㄩ貉釭模壽幛鏗腔汜慫﹛" alt="傻弝ㄩ貉釭模壽幛鏗腔汜慫﹛"></a><br>
-<a href="https://gitlab.com/Donaldhk8/vdChenDong-1080/raw/master/public/ChenDong-1080.mp4?jvwrm" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/ChenDong-1080.jpg" title="疑應昶湮蔣鳳腕氪腔秞氈眳繚﹛﹛﹛" alt="疑應昶湮蔣鳳腕氪腔秞氈眳繚﹛﹛﹛"></a>
-<a href="https://gitlab.com/Dongyril/vdhuangxiaomin-tuidang/raw/master/public/huangxiaomin-tuidang.mp4?khhzo" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/huangxiaomin-tuidang.jpg" title="兜堍靡蔚酴窀鏗腔ㄑ豖絨汒隴ㄑ﹛" alt="兜堍靡蔚酴窀鏗腔ㄑ豖絨汒隴ㄑ﹛"></a>
-<a href="https://gitlab.com/Donnamw2/vdboshisheng/raw/master/public/boshisheng.mp4?inxvg" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/boshisheng.jpg" title="傻弝ㄩ藝弊痔尪汜蹉驚腔陔汜﹛" alt="傻弝ㄩ藝弊痔尪汜蹉驚腔陔汜﹛"></a><br>
-<a href="https://gitlab.com/Donnegfa/vdshiren/raw/master/public/shiren.mp4?yvryg" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shiren.jpg" title="傻弝ㄩ怢俜坅汜韜笢郔倷腦腔岈" alt="傻弝ㄩ怢俜坅汜韜笢郔倷腦腔岈"></a>
-<a href="https://gitlab.com/Donnetta2rs/vdxsgs/raw/master/public/xsgs.mp4?mzdqq" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/xsgs.jpg" title="傻弝ㄩㄢㄟ勀藝踢寥遜澈弊囮翋﹛" alt="傻弝ㄩㄢㄟ勀藝踢寥遜澈弊囮翋﹛"></a>
-<a href="https://gitlab.com/Donniedbq/vdyanjiusheng-360p/raw/master/public/yanjiusheng-360p.mp4?urtde" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/yanjiusheng-360p.jpg" title="ㄑ給杅菴珨ㄑ腔悝汜蕉奻賸旃噶汜﹛" alt="ㄑ給杅菴珨ㄑ腔悝汜蕉奻賸旃噶汜﹛"></a><br>
-<a href="https://gitlab.com/Donniegme/vdfsu-mFG8/raw/master/public/fsu-mFG8.mp4?pfnwc" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/fsu-mFG8.jpg" title="傻弝ㄩ坴婓隙嫖殿桽奀腕寰﹛﹛﹛" alt="傻弝ㄩ坴婓隙嫖殿桽奀腕寰﹛﹛﹛"></a>
-<a href="https://gitlab.com/Donnyyjr6/vdguangming/raw/master/public/guangming.mp4?hnfcr" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guangming.jpg" title="傻弝ㄩ眚郙睿祥婕腔坴茩懂賸嫖隴" alt="傻弝ㄩ眚郙睿祥婕腔坴茩懂賸嫖隴"></a>
-<a href="https://gitlab.com/Dontea7aj/vdshaonian/raw/master/public/shaonian.mp4?ryzwp" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shaonian.jpg" title="傻弝ㄩ橈揭瑙汜腔骨痌屾爛﹛﹛﹛" alt="傻弝ㄩ橈揭瑙汜腔骨痌屾爛﹛﹛﹛"></a><br>
+<a href="https://gitlab.com/Dillonghk/vdpzNgjXjVPm/raw/master/public/pzNgjXjVPm.mp4?vqxxn" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/pzNgjXjVPm.jpg" title="疫情险　顺天保命有真言　　　　　" alt="疫情险　顺天保命有真言　　　　　"></a>
+<a href="https://gitlab.com/Dillonmkc/vdgushi-h/raw/master/public/gushi-h.mp4?eqvvy" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/gushi-h.jpg" title="大瘟疫中的奇异故事（视频）　　　" alt="大瘟疫中的奇异故事（视频）　　　"></a>
+<a href="https://gitlab.com/Doloresank/vdguanguimin/raw/master/public/guanguimin.mp4?pxteo" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹　" alt="短视频：歌唱家关贵敏的人生奇迹　"></a><br>
+<a href="https://gitlab.com/Donaldhk8/vdChenDong-1080/raw/master/public/ChenDong-1080.mp4?wvpep" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路　　　" alt="好莱坞大奖获得者的音乐之路　　　"></a>
+<a href="https://gitlab.com/Dongyril/vdhuangxiaomin-tuidang/raw/master/public/huangxiaomin-tuidang.mp4?egupg" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的＂退党声明＂　" alt="前奥运名将黄晓敏的＂退党声明＂　"></a>
+<a href="https://gitlab.com/Donnamw2/vdboshisheng/raw/master/public/boshisheng.mp4?nevzd" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/boshisheng.jpg" title="短视频：美国博士生廖佩茹的新生　" alt="短视频：美国博士生廖佩茹的新生　"></a><br>
+<a href="https://gitlab.com/Donnegfa/vdshiren/raw/master/public/shiren.mp4?mxjnb" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shiren.jpg" title="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
+<a href="https://gitlab.com/Donnetta2rs/vdxsgs/raw/master/public/xsgs.mp4?bdhfo" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/xsgs.jpg" title="短视频：３０万美金归还韩国失主　" alt="短视频：３０万美金归还韩国失主　"></a>
+<a href="https://gitlab.com/Donniedbq/vdyanjiusheng-360p/raw/master/public/yanjiusheng-360p.mp4?hmyfm" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/yanjiusheng-360p.jpg" title="＂倒数第一＂的学生考上了研究生　" alt="＂倒数第一＂的学生考上了研究生　"></a><br>
+<a href="https://gitlab.com/Donniegme/vdfsu-mFG8/raw/master/public/fsu-mFG8.mp4?orksx" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救　　　" alt="短视频：她在回光返照时得救　　　"></a>
+<a href="https://gitlab.com/Donnyyjr6/vdguangming/raw/master/public/guangming.mp4?lbkxl" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guangming.jpg" title="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
+<a href="https://gitlab.com/Dontea7aj/vdshaonian/raw/master/public/shaonian.mp4?lyjyk" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shaonian.jpg" title="短视频：绝处逢生的癌症少年　　　" alt="短视频：绝处逢生的癌症少年　　　"></a><br>
 
-<details><summary>載嗣....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
-<p><a href="https://gitlab.com/tui590285/vdjiangfa/-/raw/master/public/jiangfa.mp4?wgqmu" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/楊謫髡斐宎楷桶▲峈妦繫頗衄濬◎-4a154b?logo=youtube" title="楊謫髡斐宎楷桶▲峈妦繫頗衄濬◎﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="楊謫髡斐宎楷桶▲峈妦繫頗衄濬◎﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Dierdretfq/vdFalunDafa/raw/master/public/FalunDafa.mp4?lumbb" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌弝▼楊謫湮楊髡楊賡庄-4a154b?logo=youtube" title="楊謫湮楊髡楊賡庄﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="楊謫湮楊髡楊賡庄﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Fentonef4/vdmhw-cuoshi/raw/master/public/mhw-cuoshi.mp4?hojhg" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌眳敦▼岆※渣囥§祥岆※渠囥§-4a154b?logo=youtube" title="▽隴雌眳敦▼岆※渣囥§祥岆※渠囥§﹛﹛﹛﹛" alt="▽隴雌眳敦▼岆※渣囥§祥岆※渠囥§﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Fentonfb8/vdmhsf-20220722/raw/master/public/mhsf-20220722.mp4?clvhc" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌坋源▼楊謫髡毀漲﹛斕珩岆忳祔氪-4a154b?logo=youtube" title="▽隴雌坋源▼楊謫髡毀漲﹛斕珩岆忳祔氪﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌坋源▼楊謫髡毀漲﹛斕珩岆忳祔氪﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/whcrps461/vdjoseph_720/-/raw/master/public/joseph_720.mp4?pnznx" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/秞氈邧煎75ㄔ輓侚 癩嬝趼淩晟珨笚艙葩-4a154b?logo=youtube" title="秞氈邧煎75%輓侚 癩嬝趼淩晟珨笚艙葩﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="秞氈邧煎75%輓侚 癩嬝趼淩晟珨笚艙葩﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Dierdregnk/vdmhsf-liqimiman/raw/master/public/mhsf-liqimiman.mp4?xyhhg" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌坋源▼懤譆鞦睡秪蚕ˋ-4a154b?logo=youtube" title="▽隴雌坋源▼懤譆鞦睡秪蚕﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌坋源▼懤譆鞦睡秪蚕﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/whcrps461/vdmao1280x720/-/raw/master/public/mao1280x720.mp4?zicme" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/裕茞趙遞氪禱瘀荎腔汜扈炰-4a154b?logo=youtube" title="裕茞趙遞氪禱瘀荎腔汜扈炰﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="裕茞趙遞氪禱瘀荎腔汜扈炰﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdfalse-fire/-/raw/master/public/false-fire.mp4?uiajk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/赻煞偶§惆絳埭赻淉楊巹-4a154b?logo=youtube" title="赻煞偶§惆絳埭赻淉楊巹﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="赻煞偶§惆絳埭赻淉楊巹﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdst5-29/-/raw/master/public/st5-29.mp4?rejqe" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/斕獗徹頗佽趕腔坒芛鎘ˋ-4a154b?logo=youtube" title="斕獗徹頗佽趕腔坒芛鎘﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="斕獗徹頗佽趕腔坒芛鎘﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
+<p><a href="https://gitlab.com/tui590285/vdjiangfa/-/raw/master/public/jiangfa.mp4?hmcrw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/法轮功创始人发表《为什么会有人类》-4a154b?logo=youtube" title="法轮功创始人发表《为什么会有人类》　　　　　　　　　" alt="法轮功创始人发表《为什么会有人类》　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Dierdretfq/vdFalunDafa/raw/master/public/FalunDafa.mp4?wvood" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧视频】法轮大法功法介绍-4a154b?logo=youtube" title="法轮大法功法介绍　　　　　　　　　" alt="法轮大法功法介绍　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Fentonef4/vdmhw-cuoshi/raw/master/public/mhw-cuoshi.mp4?jvscf" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧之窗】是“错施”不是“措施”-4a154b?logo=youtube" title="【明慧之窗】是“错施”不是“措施”　　　　" alt="【明慧之窗】是“错施”不是“措施”　　　　"></a></p>
+<p><a href="https://gitlab.com/Fentonfb8/vdmhsf-20220722/raw/master/public/mhsf-20220722.mp4?muaqo" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧十方】法轮功反迫害　你也是受益者-4a154b?logo=youtube" title="【明慧十方】法轮功反迫害　你也是受益者　　　　　　　　　" alt="【明慧十方】法轮功反迫害　你也是受益者　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/whcrps461/vdjoseph_720/-/raw/master/public/joseph_720.mp4?syhfb" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/音乐人双肺75％坏死 念九字真言一周康复-4a154b?logo=youtube" title="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　" alt="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Dierdregnk/vdmhsf-liqimiman/raw/master/public/mhsf-liqimiman.mp4?gauuh" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧十方】戾气弥漫何因由？-4a154b?logo=youtube" title="【明慧十方】戾气弥漫何因由　　　　　　　　　" alt="【明慧十方】戾气弥漫何因由　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/whcrps461/vdmao1280x720/-/raw/master/public/mao1280x720.mp4?vshxq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/肝硬化患者毛凤英的人生悲喜-4a154b?logo=youtube" title="肝硬化患者毛凤英的人生悲喜　　　　　　　　　" alt="肝硬化患者毛凤英的人生悲喜　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdfalse-fire/-/raw/master/public/false-fire.mp4?jridi" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/自焚案”报导源自政法委-4a154b?logo=youtube" title="自焚案”报导源自政法委　　　　　　　　　" alt="自焚案”报导源自政法委　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdst5-29/-/raw/master/public/st5-29.mp4?wqwsk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/你见过会说话的石头吗？-4a154b?logo=youtube" title="你见过会说话的石头吗　　　　　　　　　" alt="你见过会说话的石头吗　　　　　　　　　"></a></p>
 
-<details><summary>載嗣....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
-<p><a href="https://gitlab.com/Zhe.Zan.Tui461/vd7eAU_5h43z/raw/master/public/7eAU_5h43z.mp4?piuqs" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗㄘ粒溼毞假藷堋腔怢俜悝埜燠淉埻-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗㄘ粒溼毞假藷堋腔怢俜悝埜燠淉埻﹛" alt="▽隴雌蝴萸▼ㄗㄘ粒溼毞假藷堋腔怢俜悝埜燠淉埻﹛"></a></p>
-<p><a href="https://gitlab.com/Zhe0793617/vdqLlx_nw0iq/raw/master/public/qLlx_nw0iq.mp4?rtdsq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ侐ㄘ粒溼毞假藷堋腔昹悝埜嫌霤-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ侐ㄘ粒溼毞假藷堋腔昹悝埜嫌霤﹛" alt="▽隴雌蝴萸▼ㄗ侐ㄘ粒溼毞假藷堋腔昹悝埜嫌霤﹛"></a></p>
-<p><a href="https://gitlab.com/Zhen.Chen.Jia753/vd4kbK_ssl/raw/master/public/4kbK_ssl.mp4?ferjv" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ鞠ㄘ楊謫髡悝埜輿氘蕾笭鳳赻蚕 隙善樓鏽湮 -4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ鞠ㄘ輿氘蕾笭鳳赻蚕隙善樓鏽湮﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ鞠ㄘ輿氘蕾笭鳳赻蚕隙善樓鏽湮﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/ting.zan.shei236/vdquch_itbic/-/raw/master/public/QUCH_iTBiC.mp4?tgauc" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ嬝ㄘ拸朸蹦腔昫賤-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ嬝ㄘ拸朸蹦腔昫賤﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ嬝ㄘ拸朸蹦腔昫賤﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Zhou.Ci.Sa.Shen426191/vdrbhv_hfrh1Kb/raw/master/public/rbhv_hfrh1Kb.mp4?nwmkz" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋ㄘ蔬屙鏍摩芶準楊漲楊謫髡-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋ㄘ蔬屙鏍摩芶準楊漲楊謫髡﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋ㄘ蔬屙鏍摩芶準楊漲楊謫髡﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhua170852/vdipts_fpsd/raw/master/public/ipts_fpsd.mp4?trbio" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋侐ㄘ跤謗頗測桶蔡淩眈-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋侐ㄘ跤謗頗測桶蔡淩眈﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋侐ㄘ跤謗頗測桶蔡淩眈﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Zhuan.Bin.Zhua298/vd0CoJ_XXwR/raw/master/public/0CoJ_XXwR.mp4?xmgcz" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋ㄘ壽衾伀汜恀枙-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋ㄘ壽衾伀汜恀枙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋ㄘ壽衾伀汜恀枙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Zen.Mei.Zang132/vd7eAU_wA37E3/raw/master/public/7eAU_wA37E3.mp4?tviqd" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋嬝ㄘ植伀娵婒偶艘蔬屙鏍娵婒腔訄填掛窐-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋嬝ㄘ植伀娵婒偶艘蔬屙鏍腔訄填掛窐﹛" alt="▽隴雌蝴萸▼ㄗ坋嬝ㄘ植伀娵婒偶艘蔬屙鏍腔訄填掛窐﹛"></a></p>
-<p><a href="https://gitlab.com/zen932518/vdjD7d_bpu5d/raw/master/public/jD7d_bpu5d.mp4?otjei" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋ㄘ垀彖※齡岈§迵弊模恛隅-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋ㄘ垀彖ㄑ齡岈ㄑ迵弊模恛隅﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋ㄘ垀彖ㄑ齡岈ㄑ迵弊模恛隅﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Zeng.Zao.Seng496/vdc4rB_WF/raw/master/public/c4rB_WF.mp4?ddvva" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋珨ㄘ垀彖螻笙-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋珨ㄘ垀彖螻笙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋珨ㄘ垀彖螻笙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Claygyw/vdpM9j_u0aSu/raw/master/public/pM9j_u0aSu.mp4?daiuo" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋媼ㄘ伈鳥惟腔尨-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋媼ㄘ伈鳥惟腔尨﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋媼ㄘ伈鳥惟腔尨﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Colegn9/vdoWk5_YYL6L/raw/master/public/oWk5_YYL6L.mp4?iycrk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋ㄘ秶砦蔬屙鏍腔※伀拸忏§-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋ㄘ秶砦蔬屙鏍腔ㄑ伀拸忏ㄑ﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋ㄘ秶砦蔬屙鏍腔ㄑ伀拸忏ㄑ﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Bricegnu/vdc4rB_lHrbc/raw/master/public/c4rB_lHrbc.mp4?jfzxn" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋拻ㄘ楊謫髡悝埜咂蔬屙鏍溢郫摩芶-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋拻ㄘ楊謫髡悝埜咂蔬屙鏍溢郫摩芶﹛" alt="▽隴雌蝴萸▼ㄗ媼坋拻ㄘ楊謫髡悝埜咂蔬屙鏍溢郫摩芶﹛"></a></p>
-<p><a href="https://gitlab.com/Combsgfu/vdhfM2_Hl7YM/raw/master/public/hfM2_Hl7YM.mp4?dlbrg" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋鞠ㄘ毞假藷※赻煞偶§哿摩-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋鞠ㄘ毞假藷ㄑ赻煞偶ㄑ哿摩﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋鞠ㄘ毞假藷ㄑ赻煞偶ㄑ哿摩﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/claud4gj/vdmA8C_d8/raw/master/public/mA8C_d8.mp4?sqqms" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋匐ㄘ楊謫髡悝埜腔※嘈模§-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋匐ㄘ楊謫髡悝埜腔ㄑ嘈模ㄑ﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋匐ㄘ楊謫髡悝埜腔ㄑ嘈模ㄑ﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Claudfbe/vdmA8C_dkFiR8/raw/master/public/mA8C_dkFiR8.mp4?fvwgb" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ媼坋嬝ㄘ笢弊鼠假窒酗挏鏖楊謫髡岈璃-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ媼坋嬝ㄘ笢弊鼠假窒酗挏鏖楊謫髡岈璃﹛﹛" alt="▽隴雌蝴萸▼ㄗ媼坋嬝ㄘ笢弊鼠假窒酗挏鏖楊謫髡岈璃﹛﹛"></a></p>
-<p><a href="https://gitlab.com/clay35ev/vdSQ0M_QwPQmt/raw/master/public/SQ0M_QwPQmt.mp4?zfsyj" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋珨ㄘ※蝴萸溼抶§腔銑晟岆睡堤怢腔-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋珨ㄘㄑ蝴萸溼抶ㄑ腔銑晟岆睡堤怢腔" alt="▽隴雌蝴萸▼ㄗ坋珨ㄘㄑ蝴萸溼抶ㄑ腔銑晟岆睡堤怢腔"></a></p>
-<p><a href="https://gitlab.com/Claygnha/vd0CoJ_WWJXo/raw/master/public/0CoJ_WWJXo.mp4?wdqxk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋侐ㄘ侗楊窒腔淉笥萇弝曄-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋侐ㄘ侗楊窒腔淉笥萇弝曄﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋侐ㄘ侗楊窒腔淉笥萇弝曄﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/tou138926/vdkYIu_I6mmMY/raw/master/public/kYIu_I6mmMY.mp4?rdukw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋拻ㄘ劑舷硒楊溢楊腔掖綴-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋拻ㄘ劑舷硒楊溢楊腔掖綴﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋拻ㄘ劑舷硒楊溢楊腔掖綴﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Brighthcd/vdipts_t9i9N/raw/master/public/ipts_t9i9N.mp4?vluba" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼ㄗ坋鞠ㄘ蔬屙鏍芢迠祥賸腔盪妢孮-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄗ坋鞠ㄘ蔬屙鏍芢迠祥賸腔盪妢孮﹛﹛﹛" alt="▽隴雌蝴萸▼ㄗ坋鞠ㄘ蔬屙鏍芢迠祥賸腔盪妢孮﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Classieef3/vdfqHP_UPG/raw/master/public/fqHP_UPG.mp4?tsurl" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼植※610§善※720§ㄗ狟摩ㄘ-4a154b?logo=youtube" title="▽隴雌蝴萸▼植ㄑㄥㄠㄟㄑ善ㄑㄦㄡㄟㄑㄗ狟摩ㄘ﹛﹛﹛﹛" alt="▽隴雌蝴萸▼植ㄑㄥㄠㄟㄑ善ㄑㄦㄡㄟㄑㄗ狟摩ㄘ﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Brittaet3/vdYTXS_XmvTY/raw/master/public/YTXS_XmvTY.mp4?nlzjk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼課羲笢僕贈躇摩笢茠窪躉-4a154b?logo=youtube" title="▽隴雌蝴萸▼課羲笢僕贈躇摩笢茠窪躉﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼課羲笢僕贈躇摩笢茠窪躉﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Conleydv8/vdHlZc_7zT7/raw/master/public/HlZc_7zT7.mp4?iugag" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼※毞弊氈芶§涾坋源-4a154b?logo=youtube" title="▽隴雌蝴萸▼ㄑ毞弊氈芶ㄑ涾坋源﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼ㄑ毞弊氈芶ㄑ涾坋源﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Connorefd/vddaUq_aKoXaad/raw/master/public/daUq_aKoXaad.mp4?risyn" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼慇嫌梆庈櫛諒垀漲窪躉-4a154b?logo=youtube" title="▽隴雌蝴萸▼慇嫌梆庈櫛諒垀漲窪躉﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼慇嫌梆庈櫛諒垀漲窪躉﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Connorjm8/vdjD7d_p6J/raw/master/public/jD7d_p6J.mp4?fdpes" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼呤鑠頃掩酗輿赽櫛諒垀漲祡侚-4a154b?logo=youtube" title="▽隴雌蝴萸▼呤鑠頃掩酗輿赽櫛諒垀漲祡侚﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼呤鑠頃掩酗輿赽櫛諒垀漲祡侚﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Conradfjd/vder3n_3VVJ/raw/master/public/er3n_3VVJ.mp4?ohxaw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼劑舷絀侚鼠假忒ㄛ珨模侐諳侚衾惟淉-4a154b?logo=youtube" title="▽隴雌蝴萸▼劑舷絀侚鼠假忒ㄛ珨模侐諳侚衾惟淉﹛﹛﹛﹛" alt="▽隴雌蝴萸▼劑舷絀侚鼠假忒ㄛ珨模侐諳侚衾惟淉﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Conradhm9/vdXmL0_0XDL2p/raw/master/public/XmL0_0XDL2p.mp4?yxpgy" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼萊藤眈樟郣麵ㄛ模掘忳漲-4a154b?logo=youtube" title="▽隴雌蝴萸▼萊藤眈樟郣麵ㄛ模掘忳漲﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼萊藤眈樟郣麵ㄛ模掘忳漲﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Corringe7/vdXmL0_meLQm/raw/master/public/XmL0_meLQm.mp4?fwcya" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼楷汜婓窪韓蔬吽腔謗跺漲偶瞰-4a154b?logo=youtube" title="▽隴雌蝴萸▼楷汜婓窪韓蔬吽腔謗跺漲偶瞰﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼楷汜婓窪韓蔬吽腔謗跺漲偶瞰﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/classie65q/vdO2jN_uD/raw/master/public/O2jN_uD.mp4?akdmn" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌蝴萸▼恁寁-4a154b?logo=youtube" title="▽隴雌蝴萸▼恁寁﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌蝴萸▼恁寁﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/Zhen.Suan.Nang6591/ch/-/raw/main/public/china-territory-lost_720.mp4?iaczg" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/▽隴雌坋源▼笢弊唳芞崋繫屾賸珨湮輸ˋ-4a154b?logo=youtube" title="▽隴雌坋源▼笢弊唳芞崋繫屾賸珨湮輸ˋ﹛﹛﹛﹛﹛﹛﹛﹛﹛" alt="▽隴雌坋源▼笢弊唳芞崋繫屾賸珨湮輸ˋ﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/exv455ah.mp4?avkvi" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴珨摩 髡繚-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴珨摩 髡繚﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴珨摩 髡繚﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/e6V.mp4?lnpvr" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴媼摩 湮楊羲換-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴媼摩 湮楊羲換﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴媼摩 湮楊羲換﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/1qK.mp4?bqftg" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴摩 譎迵淏陑-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴摩 譎迵淏陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴摩 譎迵淏陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/5DA.mp4?mbzdt" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴侐摩 植都善党褻-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴侐摩 植都善党褻﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴侐摩 植都善党褻﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Cfc.mp4?belhk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴拻摩 刓迾郗懂-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴拻摩 刓迾郗懂﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴拻摩 刓迾郗懂﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/ue0.mp4?qawqq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴鞠摩 婓藹麵笢-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴鞠摩 婓藹麵笢﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴鞠摩 婓藹麵笢﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/YZn.mp4?lablo" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴摩 潸麵呡堎-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴摩 潸麵呡堎﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴摩 潸麵呡堎﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/CfU.mp4?mmfam" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴匐摩 淩眈迵陑-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴匐摩 淩眈迵陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴匐摩 淩眈迵陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/MvE.mp4?aoabl" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴嬝摩 懂埭迵妏韜-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴嬝摩 懂埭迵妏韜﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴嬝摩 懂埭迵妏韜﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/2p8.mp4?cdhwn" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂 菴坋摩 猾坶迵毀猾坶-4a154b?logo=youtube" title="扂蠅豢咂帤懂 菴坋摩 猾坶迵毀猾坶﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂 菴坋摩 猾坶迵毀猾坶﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Future11.mp4?rgquy" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂ㄗ坋珨ㄘ-椅扈迵哏旆-4a154b?logo=youtube" title="扂蠅豢咂帤懂ㄗ坋珨ㄘ-椅扈迵哏旆﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂ㄗ坋珨ㄘ-椅扈迵哏旆﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Future-12.mp4?feybu" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/扂蠅豢咂帤懂ㄗ坋媼ㄘㄩ汜韜腔橄寁-4a154b?logo=youtube" title="扂蠅豢咂帤懂ㄗ坋媼ㄘㄩ汜韜腔橄寁﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="扂蠅豢咂帤懂ㄗ坋媼ㄘㄩ汜韜腔橄寁﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/uyG_ctJ.mp4?chdye" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴珨摩ㄩ絕觙-4a154b?logo=youtube" title="瑞迾毞華俴 菴珨摩ㄩ絕觙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴珨摩ㄩ絕觙﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/UBC_YZR.mp4?igysr" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴媼摩ㄩ秞-4a154b?logo=youtube" title="瑞迾毞華俴 菴媼摩ㄩ秞﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴媼摩ㄩ秞﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/hIp_gjl.mp4?zvnsf" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴摩ㄩ瑞迾-4a154b?logo=youtube" title="瑞迾毞華俴 菴摩ㄩ瑞迾﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴摩ㄩ瑞迾﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/s2Y_LSx.mp4?qzfyl" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴侐摩ㄩ盪誶-4a154b?logo=youtube" title="瑞迾毞華俴 菴侐摩ㄩ盪誶﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴侐摩ㄩ盪誶﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/EiF_QbP.mp4?juavu" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴拻摩ㄩ肮陑-4a154b?logo=youtube" title="瑞迾毞華俴 菴拻摩ㄩ肮陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴拻摩ㄩ肮陑﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/KVv_Dwr.mp4?ockud" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/瑞迾毞華俴 菴鞠摩ㄩ机瓚-4a154b?logo=youtube" title="瑞迾毞華俴 菴鞠摩ㄩ机瓚﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛ alt="瑞迾毞華俴 菴鞠摩ㄩ机瓚﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛﹛"></a></p>
+<p><a href="https://gitlab.com/Zhe.Zan.Tui461/vd7eAU_5h43z/raw/master/public/7eAU_5h43z.mp4?qmsbm" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（三）采访去天安门请愿的台湾学员李政原-4a154b?logo=youtube" title="【明慧焦点】（三）采访去天安门请愿的台湾学员李政原　" alt="【明慧焦点】（三）采访去天安门请愿的台湾学员李政原　"></a></p>
+<p><a href="https://gitlab.com/Zhe0793617/vdqLlx_nw0iq/raw/master/public/qLlx_nw0iq.mp4?hzani" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（四）采访去天安门请愿的西人学员皮尔曼-4a154b?logo=youtube" title="【明慧焦点】（四）采访去天安门请愿的西人学员皮尔曼　" alt="【明慧焦点】（四）采访去天安门请愿的西人学员皮尔曼　"></a></p>
+<p><a href="https://gitlab.com/Zhen.Chen.Jia753/vd4kbK_ssl/raw/master/public/4kbK_ssl.mp4?szbpe" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（六）法轮功学员林慎立重获自由 回到加拿大 -4a154b?logo=youtube" title="【明慧焦点】（六）林慎立重获自由回到加拿大　　　　　" alt="【明慧焦点】（六）林慎立重获自由回到加拿大　　　　　"></a></p>
+<p><a href="https://gitlab.com/ting.zan.shei236/vdquch_itbic/-/raw/master/public/QUCH_iTBiC.mp4?xivzf" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（九）无神论的误解-4a154b?logo=youtube" title="【明慧焦点】（九）无神论的误解　　　　　　　　　　　" alt="【明慧焦点】（九）无神论的误解　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Zhou.Ci.Sa.Shen426191/vdrbhv_hfrh1Kb/raw/master/public/rbhv_hfrh1Kb.mp4?utddi" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（十）江泽民集团非法迫害法轮功-4a154b?logo=youtube" title="【明慧焦点】（十）江泽民集团非法迫害法轮功　　　　　" alt="【明慧焦点】（十）江泽民集团非法迫害法轮功　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhua170852/vdipts_fpsd/raw/master/public/ipts_fpsd.mp4?hwbrp" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（十四）给两会代表讲真相-4a154b?logo=youtube" title="【明慧焦点】（十四）给两会代表讲真相　　　　　　　　" alt="【明慧焦点】（十四）给两会代表讲真相　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Zhuan.Bin.Zhua298/vd0CoJ_XXwR/raw/master/public/0CoJ_XXwR.mp4?esnlw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（十七）关于杀生问题-4a154b?logo=youtube" title="【明慧焦点】（十七）关于杀生问题　　　　　　　　　　" alt="【明慧焦点】（十七）关于杀生问题　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Zen.Mei.Zang132/vd7eAU_wA37E3/raw/master/public/7eAU_wA37E3.mp4?eaisp" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（十九）从杀人栽赃案看江泽民栽赃的邪恶本质-4a154b?logo=youtube" title="【明慧焦点】（十九）从杀人栽赃案看江泽民的邪恶本质　" alt="【明慧焦点】（十九）从杀人栽赃案看江泽民的邪恶本质　"></a></p>
+<p><a href="https://gitlab.com/zen932518/vdjD7d_bpu5d/raw/master/public/jD7d_bpu5d.mp4?lkrfe" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十）所谓“闹事”与国家稳定-4a154b?logo=youtube" title="【明慧焦点】（二十）所谓＂闹事＂与国家稳定　　　　　" alt="【明慧焦点】（二十）所谓＂闹事＂与国家稳定　　　　　"></a></p>
+<p><a href="https://gitlab.com/Zeng.Zao.Seng496/vdc4rB_WF/raw/master/public/c4rB_WF.mp4?ptrnh" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十一）所谓敛财-4a154b?logo=youtube" title="【明慧焦点】（二十一）所谓敛财　　　　　　　　　　　" alt="【明慧焦点】（二十一）所谓敛财　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Claygyw/vdpM9j_u0aSu/raw/master/public/pM9j_u0aSu.mp4?clqrw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十二）沙尘暴的启示-4a154b?logo=youtube" title="【明慧焦点】（二十二）沙尘暴的启示　　　　　　　　　" alt="【明慧焦点】（二十二）沙尘暴的启示　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Colegn9/vdoWk5_YYL6L/raw/master/public/oWk5_YYL6L.mp4?klynx" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十三）制止江泽民的“杀无赦”-4a154b?logo=youtube" title="【明慧焦点】（二十三）制止江泽民的＂杀无赦＂　　　　" alt="【明慧焦点】（二十三）制止江泽民的＂杀无赦＂　　　　"></a></p>
+<p><a href="https://gitlab.com/Bricegnu/vdc4rB_lHrbc/raw/master/public/c4rB_lHrbc.mp4?fzdea" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十五）法轮功学员起诉江泽民犯罪集团-4a154b?logo=youtube" title="【明慧焦点】（二十五）法轮功学员起诉江泽民犯罪集团　" alt="【明慧焦点】（二十五）法轮功学员起诉江泽民犯罪集团　"></a></p>
+<p><a href="https://gitlab.com/Combsgfu/vdhfM2_Hl7YM/raw/master/public/hfM2_Hl7YM.mp4?vesgi" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十六）天安门“自焚案”续集-4a154b?logo=youtube" title="【明慧焦点】（二十六）天安门＂自焚案＂续集　　　　　" alt="【明慧焦点】（二十六）天安门＂自焚案＂续集　　　　　"></a></p>
+<p><a href="https://gitlab.com/claud4gj/vdmA8C_d8/raw/master/public/mA8C_d8.mp4?kwvoq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十八）法轮功学员的“顾家”-4a154b?logo=youtube" title="【明慧焦点】（二十八）法轮功学员的＂顾家＂　　　　　" alt="【明慧焦点】（二十八）法轮功学员的＂顾家＂　　　　　"></a></p>
+<p><a href="https://gitlab.com/Claudfbe/vdmA8C_dkFiR8/raw/master/public/mA8C_dkFiR8.mp4?ezedr" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（二十九）中国公安部长诬蔑法轮功事件-4a154b?logo=youtube" title="【明慧焦点】（二十九）中国公安部长诬蔑法轮功事件　　" alt="【明慧焦点】（二十九）中国公安部长诬蔑法轮功事件　　"></a></p>
+<p><a href="https://gitlab.com/clay35ev/vdSQ0M_QwPQmt/raw/master/public/SQ0M_QwPQmt.mp4?rnhqu" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（三十一）“焦点访谈”的谎言是如何出台的-4a154b?logo=youtube" title="【明慧焦点】（三十一）＂焦点访谈＂的谎言是如何出台的" alt="【明慧焦点】（三十一）＂焦点访谈＂的谎言是如何出台的"></a></p>
+<p><a href="https://gitlab.com/Claygnha/vd0CoJ_WWJXo/raw/master/public/0CoJ_WWJXo.mp4?ninzo" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（三十四）评司法部的政治电视剧-4a154b?logo=youtube" title="【明慧焦点】（三十四）评司法部的政治电视剧　　　　　" alt="【明慧焦点】（三十四）评司法部的政治电视剧　　　　　"></a></p>
+<p><a href="https://gitlab.com/tou138926/vdkYIu_I6mmMY/raw/master/public/kYIu_I6mmMY.mp4?nmjle" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（三十五）警察执法犯法的背后-4a154b?logo=youtube" title="【明慧焦点】（三十五）警察执法犯法的背后　　　　　　" alt="【明慧焦点】（三十五）警察执法犯法的背后　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Brighthcd/vdipts_t9i9N/raw/master/public/ipts_t9i9N.mp4?hrzlb" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】（三十六）江泽民推卸不了的历史责任-4a154b?logo=youtube" title="【明慧焦点】（三十六）江泽民推卸不了的历史责任　　　" alt="【明慧焦点】（三十六）江泽民推卸不了的历史责任　　　"></a></p>
+<p><a href="https://gitlab.com/Classieef3/vdfqHP_UPG/raw/master/public/fqHP_UPG.mp4?mfdun" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】从“610”到“720”（下集）-4a154b?logo=youtube" title="【明慧焦点】从＂６１０＂到＂７２０＂（下集）　　　　" alt="【明慧焦点】从＂６１０＂到＂７２０＂（下集）　　　　"></a></p>
+<p><a href="https://gitlab.com/Brittaet3/vdYTXS_XmvTY/raw/master/public/YTXS_XmvTY.mp4?xatsk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】揭开中共秘密集中营黑幕-4a154b?logo=youtube" title="【明慧焦点】揭开中共秘密集中营黑幕　　　　　　　　　" alt="【明慧焦点】揭开中共秘密集中营黑幕　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Conleydv8/vdHlZc_7zT7/raw/master/public/HlZc_7zT7.mp4?btcfl" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】“天国乐团”震十方-4a154b?logo=youtube" title="【明慧焦点】＂天国乐团＂震十方　　　　　　　　　　　" alt="【明慧焦点】＂天国乐团＂震十方　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Connorefd/vddaUq_aKoXaad/raw/master/public/daUq_aKoXaad.mp4?hymfb" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】哈尔滨市劳教所迫害黑幕-4a154b?logo=youtube" title="【明慧焦点】哈尔滨市劳教所迫害黑幕　　　　　　　　　" alt="【明慧焦点】哈尔滨市劳教所迫害黑幕　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Connorjm8/vdjD7d_p6J/raw/master/public/jD7d_p6J.mp4?rexyq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】孙培臣被长林子劳教所迫害致死-4a154b?logo=youtube" title="【明慧焦点】孙培臣被长林子劳教所迫害致死　　　　　　" alt="【明慧焦点】孙培臣被长林子劳教所迫害致死　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Conradfjd/vder3n_3VVJ/raw/master/public/er3n_3VVJ.mp4?dpfvz" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】警察惨死公安手，一家四口死于暴政-4a154b?logo=youtube" title="【明慧焦点】警察惨死公安手，一家四口死于暴政　　　　" alt="【明慧焦点】警察惨死公安手，一家四口死于暴政　　　　"></a></p>
+<p><a href="https://gitlab.com/Conradhm9/vdXmL0_0XDL2p/raw/master/public/XmL0_0XDL2p.mp4?zkdpc" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】弟妹相继遇难，全家备受迫害-4a154b?logo=youtube" title="【明慧焦点】弟妹相继遇难，全家备受迫害　　　　　　　" alt="【明慧焦点】弟妹相继遇难，全家备受迫害　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Corringe7/vdXmL0_meLQm/raw/master/public/XmL0_meLQm.mp4?ycmod" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】发生在黑龙江省的两个迫害案例-4a154b?logo=youtube" title="【明慧焦点】发生在黑龙江省的两个迫害案例　　　　　　" alt="【明慧焦点】发生在黑龙江省的两个迫害案例　　　　　　"></a></p>
+<p><a href="https://gitlab.com/classie65q/vdO2jN_uD/raw/master/public/O2jN_uD.mp4?uaqgk" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧焦点】选择-4a154b?logo=youtube" title="【明慧焦点】选择　　　　　　　　　　　　　　　　　　" alt="【明慧焦点】选择　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/Zhen.Suan.Nang6591/ch/-/raw/main/public/china-territory-lost_720.mp4?couvq" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/【明慧十方】中国版图怎么少了一大块？-4a154b?logo=youtube" title="【明慧十方】中国版图怎么少了一大块？　　　　　　　　　" alt="【明慧十方】中国版图怎么少了一大块？　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/exv455ah.mp4?qitix" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第一集 气功铺路-4a154b?logo=youtube" title="我们告诉未来 第一集 气功铺路　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第一集 气功铺路　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/e6V.mp4?bpiok" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第二集 大法开传-4a154b?logo=youtube" title="我们告诉未来 第二集 大法开传　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第二集 大法开传　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/1qK.mp4?hjatf" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第三集 破迷与正心-4a154b?logo=youtube" title="我们告诉未来 第三集 破迷与正心　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第三集 破迷与正心　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/5DA.mp4?yhljl" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第四集 从常人到修炼人-4a154b?logo=youtube" title="我们告诉未来 第四集 从常人到修炼人　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第四集 从常人到修炼人　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Cfc.mp4?uexzp" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第五集 山雨欲来-4a154b?logo=youtube" title="我们告诉未来 第五集 山雨欲来　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第五集 山雨欲来　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/ue0.mp4?xjohh" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第六集 在魔难中-4a154b?logo=youtube" title="我们告诉未来 第六集 在魔难中　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第六集 在魔难中　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/YZn.mp4?wshnc" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第七集 艰难岁月-4a154b?logo=youtube" title="我们告诉未来 第七集 艰难岁月　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第七集 艰难岁月　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/CfU.mp4?yxmpw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第八集 真相与人心-4a154b?logo=youtube" title="我们告诉未来 第八集 真相与人心　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第八集 真相与人心　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/MvE.mp4?vipxn" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第九集 来源与使命-4a154b?logo=youtube" title="我们告诉未来 第九集 来源与使命　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第九集 来源与使命　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/2p8.mp4?esywd" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来 第十集 封锁与反封锁-4a154b?logo=youtube" title="我们告诉未来 第十集 封锁与反封锁　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来 第十集 封锁与反封锁　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Future11.mp4?yrdrj" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来（十一）-慈悲与威严-4a154b?logo=youtube" title="我们告诉未来（十一）-慈悲与威严　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来（十一）-慈悲与威严　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhou.tao.jue9531/wm/-/raw/main/public/Future-12.mp4?zyjva" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/我们告诉未来（十二）：生命的抉择-4a154b?logo=youtube" title="我们告诉未来（十二）：生命的抉择　　　　　　　　　　　　　　　　　　　　　　　　　 alt="我们告诉未来（十二）：生命的抉择　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/uyG_ctJ.mp4?xwjqp" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第一集：荡浊-4a154b?logo=youtube" title="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/UBC_YZR.mp4?rbeiv" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第二集：清音-4a154b?logo=youtube" title="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/hIp_gjl.mp4?ersba" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第三集：风雨-4a154b?logo=youtube" title="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/s2Y_LSx.mp4?swfrv" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第四集：历劫-4a154b?logo=youtube" title="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/EiF_QbP.mp4?kbsia" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第五集：同心-4a154b?logo=youtube" title="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/KVv_Dwr.mp4?eobim" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第六集：审判-4a154b?logo=youtube" title="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
 
 </details>
 </details>
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
-<h1><p><strong>偭悕繩豪</strong></p></h1>
+<h1><p><strong>傲雪梅花</strong></p></h1>
 </div>
 
-<details><summary align="center"><p align="center"><strong>盪妢腔獗痐::arrow_double_down:</strong></p></summary>
+<details><summary align="center"><p align="center"><strong>历史的见证::arrow_double_down:</strong></p></summary>
 
-<p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;媼坋爛腔倞瑞悛迾ㄛ媼坋嗣爛腔錘殏艦ㄛ呡堎滄岒ㄛ盪妢獗痐ㄛ漲囡謎埻掛憩岆峊掖耋砱祥腕鏍陑腔...</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99爛笢僕秪楊謫髡党褻杅閉徹絨埜奧瑁遼淜揤ㄛ祥洇秶婖珨跺跺銑晟ㄛ絳栳毞假藷赻煞偶娵婒楊謫髡ㄛ勤澄厥陓欯腔悝埜堂殤陪模ㄛ蚚鴃蹄倢ㄛ絳祡杅眕啃勀數腔模厗﹜燭赽汃ㄐ奧笢僕詢嘛賸赻撩腔婖樑哫換﹝跪弊淉葬煌煌孮笢僕惟俴ㄛ詢僅諫隅楊謫髡枑汔耋肅﹜噱趙陑鍾﹜旯翩极腔袗埣傖虴﹝婓弊囀ㄛ汒堔楊謫髡腔岈璃森捨睦﹝傖奻勀峈掩準楊蚰眸腔悝埜堋ㄛ栳秠賸祥庢毀漲腔珨躉衱珨躉﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;媼坋爛徹賸﹝踏楊謫髡※淩囡§岍歎硉夤ㄛ閉埣鏍逜恅趙ㄛ粹換岍賜珨啃嗣跺弊模ㄛ躺怢俜憩衄匐坋勀党褻ㄛ翋猁翍釬掩祒傖侐坋嗣笱恅趼ㄛ撼岍婝酐ㄐ奧笢僕蔬屙鏍秪郫填漲ㄛ婓漆囀俋掩杅啃勀薊扰撼惆ㄛ掩媼坋嗣勀妗靡咂﹝婓涴部勤囡謎湖揤笢ㄛ笢僕參楊秶﹜耋肅豐燴飲芢砃推壓晚埽﹝鏍陑犮鴃﹜毞躑埳!蠅笝衾橇倳ㄩ猁賦旰涴輪啃爛鏍逜瘋誶ㄛ笭膘扦頗耋肅ㄛ遢倳弊謎眭ㄛ鏍豖堤笢僕岆淂寰笢貌鏍逜腔峔珨堤繚﹝
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;笢僕魂晡楊謫髡悝埜夥毽闖腔岈妗嫖綴涾儐岍賜﹝湮槨啋扦蹦▲嬝僕莉絨◎眕拸褫梁眶腔岈妗課尨笢僕涴※昹懂蚅鍾§腔淩醱醴ㄩ坳箹汜拸杅葛啖ㄛ障輓笢貌恅隴ㄛ障鏢弊耋肅ㄛ婓珨部部淉笥堍雄笢迒岕杅勀肮婉汜韜ㄛ岆淩妗腔藹寤郪眽ㄛ斛婈毞凱!笢弊植苤樓屾珂勦奀憩婓悛狟哫岉猁參汜韜瓬跤坳﹝婓森※毞鏢笢僕§眳奀ㄛ豖絨賤壺馮岉ㄛ祥迵填藹峈斪ㄛ暫岆耋肅謎眭腔恁寁ㄛ珩岆赻扂悵假腔毞砩假齬﹝踏閉徹3砬豖﹝鏍<a href="http://219.81.164.85/UmhjM" rel="nofollow">豖堤笢僕</a>ㄛ賤壺赻撩旯奻腔喝忨暮ㄛ蚗堈賦旰僕莉絨勤笢弊腔漲ㄛ赻瞳瞳坻ㄛ岆垀衄囡謎蠅腔堋咡ㄐ</strong></p>
+<p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://118.165.168.199/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/01.jpg">
-<h1><strong><a href="http://219.81.164.85/UmhjM" rel="nofollow">豖堤笢僕ㄛ堈燭郫填ㄛ湮恔砮腔赻寰ㄐ萸僻涴爵</a></strong></h1><br>
+<h1><strong><a href="http://118.165.168.199/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/03.jpg"><br>
@@ -456,33 +456,33 @@
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/44.jpg"><br>
 
 <hr>
-<h1><p><strong>統迵涴部鏍逜赻寰堍雄</strong></p></h1>
+<h1><p><strong>请参与这场民族自救运动</strong></p></h1>
 <p><strong>
 </div>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;2000爛10堎30鹵ㄛ笭堁栠陎裮蔬醱ㄛ杅靡秪※酗堍1瘍§楹葡腔邈阨氪婓梨濮腔蔬阨笢淴崨﹜網寰﹝笚峓輪10沭苤儂眶摒翋蠅勤網寰腔弝奧祥獗ㄛ硐嘈湖檜阨醱腔※蘸笙§ㄛ撓跺摒翋遜虷耋ㄛ斕蠅憩疑疑婓摒菁倎洘勘﹝ㄗ▲笭俀惆◎ㄘ</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;2003爛12堎20錘鹵ㄛ紩漆眅粔※幗坒§腔尪詢湮泆楷汜珨潮偶﹝8靡鹹赽絞覂婓部輪200腔醱ㄛ蔚珨躓赽禂婓伈楷奻潮﹝ㄗ▲陔儔惆◎ㄘ</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;※拏陬潮偶涾儐嫘昹渦芺蟀潮3躓拸詫晟§(▲笢弊陔恓厙◎2002爛07堎05)</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;※慇嫌梆奻栳漣珨躉ㄩ渦芺絞誰伀杅啃懈鏍峓夤§ㄗ▲笢弊爛惆◎2002爛7堎15ㄘ</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;※屾躓擇覃牁掩興匐絮媼坋嗣跺峓夤氪拸雄衾笪§ㄗ▲鰍源厙◎2002爛5堎17ㄘ</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;＃＃</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;涴鍔祥漁奧璦腔等ㄛ遜褫眕珨眻蹈狟﹝珨跺崠冪斐婖閩銓恅隴腔獰痀眳堊ㄛ睡眕栳曹善涴脹濮蠔傖俶腔褫扈華祭﹝杅爛腔笭肅俴囡﹜※砱獰秷陓§腔藝疑歎硉闡爵賸?</p>
-<p><img ALIGN=left src="https://raw.githubusercontent.com/19920513/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;笢僕弊綴ㄛ鴃奪扂蠅腔悛闕婓晊哿ㄛ筍岆貌狦恅隴腔郇鳶創換眒冪掩諍剿﹝換苀腔陓欯睿歎硉夤掩薯輓ㄛ迵眳潔腔壽乾迵睿迣掩聾傖賸須淰迵喫管˙珨睿盪妢換苀衄壽腔昜掩絞傖※侐導§ㄛ撓爛懂※笳苠誹砱§※湮悝眳耋ㄛ婓隴隴肅ㄛ婓鏍ㄛ婓砦衾祫囡§腔岍歎硉夤掩絞傖猾膘媎﹝"党旯模笥弊毞狟" "奻祫毞赽狟祫旵鏍ㄛ珨諂眕党旯峈掛"腔翋霜恅趙ㄛ掩帢趙傖賸僧穸淰須脹絨恅趙﹝蚕森湍懂扦頗耋肅醱推壓ㄛ妏淕跺鏍逜疪旮笭腔峉儂﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;扂蠅傖賸珨跺囮賸赻扂腔鏍逜﹝植恅趙奻艘ㄛ扂蠅眒冪曹傖厗弊贖﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;笢貌鏍逜拻爛鞦鞦盪妢酗碩笢ㄛ崠冪珩堤珋徹陳測載詁ㄛ珩堤珋徹鴅﹜聤珨濬腔惟澱鏍崞ㄛ奧拸蹦弊模睡條蟀儀賦ㄛ燮鏍睡阨旮鳶ㄛ蔬刓眢翋眳綴﹝硐剒撓坋爛倎欱汜洘ㄛ恅隴晞笭陔荻隴嫖湮﹝森諂秪鏍逜恅趙甡導ㄛ鏍逜耋肅婓ㄛ鏍逜儕朸帤侚ㄐ</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;盪妢梫蛌善踏ㄛ眕銑晟睿惟薯腕剩腔笢僕綴ㄛ笢貌鏍逜汜湔跦價掩殘障腕敞啃謂ㄩ拻爛換創腔耋肅梓袧掩俉祑趙˙陓欯堤珋峉儂ㄛ婖傖笢弊怜夥梢華ㄛ昜郗筵霜ㄛ窪扦頗拸謂祥﹝諧蟹塹拸揭祥婓﹜樑簸帢輾莉滓斂傖婐﹝盪鴃終漆氿泬符腕眕倛傖腔祥褫婬汜腔赻訧埭掩媎怗拹﹝森奧厘ㄛ拸剒嗣ㄛ赽呤綴測蔚拸揭扆贊珨源噱芩ㄛ珨碇噱阨ㄛ珨諳曾噱腔諾﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;衾笢僕拸垀祥婓腔炴齟迵惟薯赲狟ㄛ衄嗣屾溫賸剴妗遵綠﹜乾睿腔耋肅菁盄ㄛ曹腕獗瑞妏嗆﹜邈凝狟坒ㄛ朼祫峈珨撩眳佌奧拸填祥釬﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;尕峚攫萸笢僕腔郫填ㄛ覜善陑拸掀腔麥笭﹝賸賤賸笢僕ㄛ符隴啞妦繫請酕郫填昑毞ㄛ騔罣麵抎﹝</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;盪妢奻拸杅崠祥褫珨岍腔著弊呴覂耋肅園邈睿昜窐酸窋奧寥衾鳥芩ㄛ笢僕淏怳婓涴珨陬殌笢ㄛ筍岆坳勤貌狦赽鏍惟薯炴齟ㄛ嫩怀賸坳腔絨恅趙ㄛ嬰堂淕跺鏍逜ㄛ迍砃勀誶祥葩腔旮唻﹝崋欴章菁腔參貌狦植汜侚珨盄眳峉儂笢賤寰堤懂ˋ斕樓善涴部箔箔轄轄腔鏍逜赻寰堍雄笢懂-----<a href="http://219.81.164.85/UmhjM" rel="nofollow">汒隴豖堤僕莉絨﹜僕芶﹜屾珂勦郪眽</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;2000年10月30日晨，重庆云阳三星沱江面，数名因“长运1号”翻覆的落水者在冰冷的江水中挣扎、呼救。周围近10条小机驳船主们对呼救的人却视而不见，只顾打捞水面的“刨财”，几个船主还取笑道，你们就好好在船底休息吧。（《重庆晚报》）</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;2003年12月20日凌晨，珠海香洲“滚石”的士高大厅发生一起强奸案。8名男子当着在场近200人的面，将一女子摁在沙发上强奸。（《新京报》）</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;“卧铺车强奸案震惊广西歹徒连奸3女无人敢言”(《中国新闻网》2002年07月05日)</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;“哈尔滨上演骇人一幕：歹徒当街杀人数百居民围观”（《中国青年报》2002年7月15日）</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;“少女拒调戏被砍八刀二十多个围观者无动于衷”（《南方网》2002年5月17日）</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;……</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;这令人不寒而栗的清单，还可以一直列下去。一个曾经创造辉煌文明的礼仪之邦，何以演变到这等冷漠成性的可悲地步。数千年的重德行善、“仁义礼智信”的美好价值哪里去了?</p>
+<p><img ALIGN=left src="https://raw.githubusercontent.com/19920513/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共窃国后，尽管我们的血脉仍在延续，但是华夏文明的薪火承传已经被截断。传统的信仰和价值观被强力破坏，人与人之间的关爱与和谐被扭曲成了斗争与仇恨；一切和历史传统有关的物品被当成“四旧”，几千年来“忠孝节义”“大学之道，在明明德，在亲民，在止于至善”的普世价值观被当成封建糟粕。"修身齐家治国平天下" "上至天子下至庶民，一皆以修身为本"的主流文化，被伪化成了宫庭争斗等党文化。由此带来社会道德全面崩溃，使整个民族陷入深重的危机。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;我们成了一个失去了自我的民族。从文化上看，我们已经变成亡国奴。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中华民族五千年漫漫历史长河中，曾经也出现过朝代更叠，也出现过桀、纣一类的暴君民贼，然而无论国家如何兵连祸结，黎民如何水深火热，江山易主之后。只需几十年休养生息，文明便重新昌明光大。此皆因民族文化依旧，民族道德仍在，民族精神未死！</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://118.165.168.199/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/19920513/djy/blob/master/gb/about-djy.md#1">湮槨啋奀惆芘詨</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/19920513/ntdtv/blob/master/gb/contribute.md#1">陔昄萇弝芘詨</a></strong></p>
-忒儂奻酗偌甜葩秶狟蹈厙硊麼媼峎鎢煦砅掛怢ㄩ</h4>https://github.com/19920513/www/blob/master/README.md?j#1<br>
-<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?d" title="煦砅掛怢"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/iiiss" title="煦砅掛怢"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?h%231" title="煦砅掛怢"></img>
+<p><strong><a href="https://github.com/19920513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/19920513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/19920513/www/blob/master/README.md?b#1<br>
+<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?q" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/ggggi" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?p%231" title="分享本平台"></img>
 <br>
-<a href="https://tinyurl.com/hhrhh">tinyurl.com/eeess</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/iiiqq">tinyurl.com/jjejj</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/eee99">tinyurl.com/gg4gg</a>
+<a href="https://tinyurl.com/gggqq">tinyurl.com/gggii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jjddd">tinyurl.com/gg4gg</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jnnnn">tinyurl.com/kk3kk</a>
 <br>
 <br>
-<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?o#1" target="_blank">媼峎鎢藝趙</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tui590285/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fy%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fx%231%22%5D" target="_blank">珨棒秶釬嗣跺媼峎鎢</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">媼峎鎢妎梗</a>
+<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?h#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tui590285/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fj%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fy%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
 </div>
