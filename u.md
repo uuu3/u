@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/1992513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/1992513/www/master/t/www.jpg"></a><br>
-<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/iiijj">tinyurl.com/jjqjj</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;.... :arrow_double_down: </summary></p>
-<img src="https://quickchart.io/qr?text=https://github.com/1992513/www/blob/master/README.md?h%231&size=256" title="分享本平台"></img><br>
+<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/iiiyy">tinyurl.com/iiiss</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;.... :arrow_double_down: </summary></p>
+<img src="https://quickchart.io/qr?text=https://github.com/1992513/www/blob/master/README.md?g%231&size=256" title="分享本平台"></img><br>
 本平台二维码
 </details>
 
@@ -24,29 +24,28 @@
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/05/a104130433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美舰遭导弹袭击 美军猛打3艘伊朗油轮（视频）>-009fcc?logoWidth=1" title="美舰遭导弹袭击　美军猛打３艘伊朗油轮（视>>" alt="美舰遭导弹袭击　美军猛打３艘伊朗油轮（视>>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/05/a104130420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异瘆人！福建泉州夜空惊现大面积绿光（视频）>-009fcc?logoWidth=1" title="诡异耍「＝ㄈ菀箍站执竺婊坦猓ㄊ?>" alt="诡异耍「＝ㄈ菀箍站执竺婊坦猓ㄊ?>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/04/a104130291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访王维洛：早知会有泥石流 救命数据不给！ >-009fcc?logoWidth=1" title="专访王维洛：早知会有泥石流　救命数据不给>>" alt="专访王维洛：早知会有泥石流　救命数据不给>>"></a></p>
+<p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水挡不住！ 菲律宾新娘披婚纱深水中走红毯（>-009fcc?logoWidth=1" title="洪水挡不住！　菲律宾新娘披婚纱深水中走红>>" alt="洪水挡不住！　菲律宾新娘披婚纱深水中走红>>"></a></p>
+<p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许家印奢华黑幕：3架私人飞机 200情妇  >-009fcc?logoWidth=1" title="许家印奢华黑幕：３架私人飞机　２００情妇>>" alt="许家印奢华黑幕：３架私人飞机　２００情妇>>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国特使前往乌克兰 称与普京会谈“坦诚至极”>-009fcc?logoWidth=1" title="美国特使前往乌克兰　称与普京会谈＂坦诚至>>" alt="美国特使前往乌克兰　称与普京会谈＂坦诚至>>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玻利维亚军事基地连环爆 增至3死14名士兵下>-009fcc?logoWidth=1" title="玻利维亚军事基地连环爆　增至３死１４名士>>" alt="玻利维亚军事基地连环爆　增至３死１４名士>>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/医生拒给5岁女童看病 病历标注“刁蛮”惹怒家>-009fcc?logoWidth=1" title="医生拒给５岁女童看病　病历标注＂刁蛮＂惹>>" alt="医生拒给５岁女童看病　病历标注＂刁蛮＂惹>>"></a></p>
-<p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾亲手整理慈禧遗体 中国清宫史学者徐广源病逝>-009fcc?logoWidth=1" title="曾亲手整理慈禧遗体　中国清宫史学者徐广源>>" alt="曾亲手整理慈禧遗体　中国清宫史学者徐广源>>"></a></p>
-<p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000官兵休整5天 林肯号撒1亿泰铢结束泰>-009fcc?logoWidth=1" title="５０００官兵休整５天　林肯号撒１亿泰铢结>>" alt="５０００官兵休整５天　林肯号撒１亿泰铢结>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp; :arrow_double_down: <br></summary>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丁言：中国化债进下半场 城投退场 债务谁承担>-009fcc?logoWidth=1" title="丁言：中国化债进下半场　城投退场　债务谁>>" alt="丁言：中国化债进下半场　城投退场　债务谁>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼泊尔救出河南农民工 中方为何仍无幸存者？ >-009fcc?logoWidth=1" title="尼泊尔救出河南农民工　中方为何仍无幸存者>>" alt="尼泊尔救出河南农民工　中方为何仍无幸存者>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与普京会谈约三小时 川普特使离开克宫    >-009fcc?logoWidth=1" title="与普京会谈约三小时　川普特使离开克宫　　>>" alt="与普京会谈约三小时　川普特使离开克宫　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆企元道通信造假 被罚2.39亿面临退市  >-009fcc?logoWidth=1" title="陆企元道通信造假　被罚２．３９亿面临退市>>" alt="陆企元道通信造假　被罚２．３９亿面临退市>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国选手从《神的召唤》中感受自然与神圣   >-009fcc?logoWidth=1" title="韩国选手从《神的召唤》中感受自然与神圣　>>" alt="韩国选手从《神的召唤》中感受自然与神圣　>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建泉州现绿色天空 网民惊呼如地府（视频） >-009fcc?logoWidth=1" title="福建泉州现绿色天空　网民惊呼如地府（视频>>" alt="福建泉州现绿色天空　网民惊呼如地府（视频>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川绵竹大量飞鸟盘旋 安徽传巨响（视频）  >-009fcc?logoWidth=1" title="四川绵竹大量飞鸟盘旋　安徽传巨响（视频）>>" alt="四川绵竹大量飞鸟盘旋　安徽传巨响（视频）>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/4/n14842922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾中舍己救人 尼泊尔工长苦撑9天绝地生还 >-009fcc?logoWidth=1" title="洪灾中舍己救人　尼泊尔工长苦撑９天绝地生>>" alt="洪灾中舍己救人　尼泊尔工长苦撑９天绝地生>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/4/n14842812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国热门航线现白菜价 1折特价       >-009fcc?logoWidth=1" title="中国热门航线现白菜价　１折特价　　　　　>>" alt="中国热门航线现白菜价　１折特价　　　　　>>"></a></p>
+<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北毒食品泛滥 民众斥监管不作为      >-009fcc?logoWidth=1" title="河北毒食品泛滥　民众斥监管不作为　　　　>>" alt="河北毒食品泛滥　民众斥监管不作为　　　　>>"></a></p>
+<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共收紧出境管控 大陆人仍想办法出国    >-009fcc?logoWidth=1" title="中共收紧出境管控　大陆人仍想办法出国　　>>" alt="中共收紧出境管控　大陆人仍想办法出国　　>>"></a></p>
+<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/5/n14843578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习反腐14年 重回“贪腐治国”？      >-009fcc?logoWidth=1" title="习反腐１４年　重回＂贪腐治国＂？　　　　>>" alt="习反腐１４年　重回＂贪腐治国＂？　　　　>>"></a></p>
+<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/China GT上海站发生严重事故     >-009fcc?logoWidth=1" title="Ｃｈｉｎａ　ＧＴ上海站发生严重事故　　　>>" alt="Ｃｈｉｎａ　ＧＴ上海站发生严重事故　　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国超级跑车锦标赛上海站三车相撞起火    >-009fcc?logoWidth=1" title="中国超级跑车锦标赛上海站三车相撞起火　　>>" alt="中国超级跑车锦标赛上海站三车相撞起火　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁处长被枪击25年未破 在世目击者遇车祸 >-009fcc?logoWidth=1" title="辽宁处长被枪击２５年未破　在世目击者遇车>>" alt="辽宁处长被枪击２５年未破　在世目击者遇车>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州中医药大学一附属医院患者捅伤医生    >-009fcc?logoWidth=1" title="贵州中医药大学一附属医院患者捅伤医生　　>>" alt="贵州中医药大学一附属医院患者捅伤医生　　>>"></a></p>
+<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙酷热难耐 传统的折扇备受青睐     >-009fcc?logoWidth=1" title="西班牙酷热难耐　传统的折扇备受青睐　　　>>" alt="西班牙酷热难耐　传统的折扇备受青睐　　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何你应该用洋葱在窗户上擦拭？       >-009fcc?logoWidth=1" title="为何你应该用洋葱在窗户上擦拭？　　　　　>>" alt="为何你应该用洋葱在窗户上擦拭？　　　　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在邮轮上如何避免生病？ 专家支招      >-009fcc?logoWidth=1" title="在邮轮上如何避免生病？　专家支招　　　　>>" alt="在邮轮上如何避免生病？　专家支招　　　　>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北毒食品泛滥 民众斥监管不作为      >-009fcc?logoWidth=1" title="河北毒食品泛滥　民众斥监管不作为　　　　>>" alt="河北毒食品泛滥　民众斥监管不作为　　　　>>"></a></p>
 <p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/4/n14842623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美F--35战机等五支空中力量在太平洋担要角 >-009fcc?logoWidth=1" title="美Ｆ－３５战机等五支空中力量在太平洋担要>>" alt="美Ｆ－３５战机等五支空中力量在太平洋担要>>"></a></p>
-<p><a href="https://github.com/1992513/djy/blob/master/gb/26/9/6/n14843766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国劳工节汽油均价破4美元 中东战火成主因 >-009fcc?logoWidth=1" title="美国劳工节汽油均价破４美元　中东战火成主>>" alt="美国劳工节汽油均价破４美元　中东战火成主>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp; :arrow_double_down: <br></summary>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/06/a104130615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“老贼”77岁老人与61岁好友合谋盗窃被抓（>-009fcc?logoWidth=1" title="＂老贼＂７７岁老人与６１岁好友合谋盗窃被>>" alt="＂老贼＂７７岁老人与６１岁好友合谋盗窃被>>"></a></p>
 <p><a href="https://github.com/1992513/ntdtv/blob/master/gb/2026/09/05/a104130364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西遂川泥石流多人被埋 山崩房塌影片流出（多>-009fcc?logoWidth=1" title="江西遂川泥石流多人被埋　山崩房塌影片流出>>" alt="江西遂川泥石流多人被埋　山崩房塌影片流出>>"></a></p>
@@ -274,7 +273,7 @@
 <img src="https://raw.githubusercontent.com/1992513/www/master/t/lh600.jpg"><br>
 
 <h1><strong>其它的真相媒体</strong></h1>
-<details><summary><a target="_blank" href="http://d3vsvlw7xh46v3.cloudfront.net/EaXDqIhW?tacko">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://d3vsvlw7xh46v3.cloudfront.net/GnoF?qfdrk">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; :arrow_double_down: </p></summary>
+<details><summary><a target="_blank" href="http://d10qca8zoh1ssm.cloudfront.net/EaXDqIhW?wltgr">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://d10qca8zoh1ssm.cloudfront.net/GnoF?ilgfg">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; :arrow_double_down: </p></summary>
 
 </details>
 
@@ -294,22 +293,22 @@
 
 <img src="https://raw.githubusercontent.com/1992513/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
-<a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?xjifp" target="_blank"><img src="https://raw.githubusercontent.com/1992513/vd/master/t/210b/wf595.jpg"></a>
-<p><details><summary><a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?ooaai" target="_blank">短视频 : 伪火骗局--看中共如何造假</a>  :arrow_double_down: </summary></p>
-<img src="https://quickchart.io/qr?text=https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?cigos&size=256" title="分享本平台"></img><br>
+<a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?ttpfd" target="_blank"><img src="https://raw.githubusercontent.com/1992513/vd/master/t/210b/wf595.jpg"></a>
+<p><details><summary><a href="https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?hvvqw" target="_blank">短视频 : 伪火骗局--看中共如何造假</a>  :arrow_double_down: </summary></p>
+<img src="https://quickchart.io/qr?text=https://gitlab.com/asdfghjk12/zfzx/-/raw/main/Falsefire.mp4?xigtz&size=256" title="分享本平台"></img><br>
 伪火视频二维码
 </details>
 <br>
-<p><a href="https://gitlab.com/whcrps461/vdjoseph_720/-/raw/master/public/joseph_720.mp4?zrmfx" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/音乐人双肺75％坏死 念九字真言一周康复-4a154b?logo=youtube" title="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　" alt="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/whcrps461/vdmao1280x720/-/raw/master/public/mao1280x720.mp4?jqfgs" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/肝硬化患者毛凤英的人生悲喜-4a154b?logo=youtube" title="肝硬化患者毛凤英的人生悲喜　　　　　　　　　" alt="肝硬化患者毛凤英的人生悲喜　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdfalse-fire/-/raw/master/public/false-fire.mp4?ammqa" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/自焚案”报导源自政法委-4a154b?logo=youtube" title="自焚案”报导源自政法委　　　　　　　　　" alt="自焚案”报导源自政法委　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdst5-29/-/raw/master/public/st5-29.mp4?zvhus" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/你见过会说话的石头吗？-4a154b?logo=youtube" title="你见过会说话的石头吗　　　　　　　　　" alt="你见过会说话的石头吗　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/uyG_ctJ.mp4?mwkrs" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第一集：荡浊-4a154b?logo=youtube" title="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/UBC_YZR.mp4?zgqfu" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第二集：清音-4a154b?logo=youtube" title="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/hIp_gjl.mp4?gqhcd" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第三集：风雨-4a154b?logo=youtube" title="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/s2Y_LSx.mp4?dnqtj" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第四集：历劫-4a154b?logo=youtube" title="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/EiF_QbP.mp4?bowxp" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第五集：同心-4a154b?logo=youtube" title="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
-<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/KVv_Dwr.mp4?ywtfw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第六集：审判-4a154b?logo=youtube" title="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/whcrps461/vdjoseph_720/-/raw/master/public/joseph_720.mp4?mutug" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/音乐人双肺75％坏死 念九字真言一周康复-4a154b?logo=youtube" title="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　" alt="音乐人双肺75%坏死 念九字真言一周康复　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/whcrps461/vdmao1280x720/-/raw/master/public/mao1280x720.mp4?lchoa" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/肝硬化患者毛凤英的人生悲喜-4a154b?logo=youtube" title="肝硬化患者毛凤英的人生悲喜　　　　　　　　　" alt="肝硬化患者毛凤英的人生悲喜　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdfalse-fire/-/raw/master/public/false-fire.mp4?skycz" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/自焚案”报导源自政法委-4a154b?logo=youtube" title="自焚案”报导源自政法委　　　　　　　　　" alt="自焚案”报导源自政法委　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zang.qian.dia.jiu418179/vdst5-29/-/raw/master/public/st5-29.mp4?ivfij" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/你见过会说话的石头吗？-4a154b?logo=youtube" title="你见过会说话的石头吗　　　　　　　　　" alt="你见过会说话的石头吗　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/uyG_ctJ.mp4?hcaqe" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第一集：荡浊-4a154b?logo=youtube" title="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第一集：荡浊　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/UBC_YZR.mp4?kfihm" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第二集：清音-4a154b?logo=youtube" title="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第二集：清音　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/hIp_gjl.mp4?umcbw" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第三集：风雨-4a154b?logo=youtube" title="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第三集：风雨　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/s2Y_LSx.mp4?tawls" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第四集：历劫-4a154b?logo=youtube" title="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第四集：历劫　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/EiF_QbP.mp4?cyvna" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第五集：同心-4a154b?logo=youtube" title="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第五集：同心　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
+<p><a href="https://gitlab.com/zhe9731102/fy/-/raw/main/public/KVv_Dwr.mp4?pkskm" target="_blank"><img width="590" height="60" src="https://img.shields.io/badge/风雨天地行 第六集：审判-4a154b?logo=youtube" title="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　 alt="风雨天地行 第六集：审判　　　　　　　　　　　　　　　　　　　　　　　　　"></a></p>
 
 
 <img src="https://raw.githubusercontent.com/1992513/www/master/t/lh600.jpg"><br>
@@ -321,12 +320,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十多年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;1999年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十多年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在国内被二十多万人实名起诉，在海外被数百万人联署举报。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过4亿人三退。全民<a href="http://d3vsvlw7xh46v3.cloudfront.net/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过4亿人三退。全民<a href="http://d10qca8zoh1ssm.cloudfront.net/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/1992513/www/master/t/01.jpg">
-<h1><strong><a href="http://d3vsvlw7xh46v3.cloudfront.net/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://d10qca8zoh1ssm.cloudfront.net/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/1992513/www/master/t/03.jpg"><br>
@@ -386,17 +385,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://d3vsvlw7xh46v3.cloudfront.net/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://d10qca8zoh1ssm.cloudfront.net/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/1992513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/1992513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/1992513/www/blob/master/README.md?e#1<br>
-<br><img align="middle" src="https://raw.githubusercontent.com/1992513/www/master/t/fg200.gif?g" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://quickchart.io/qr?text=https://tinyurl.com/jj3jj&size=240" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://quickchart.io/qr?text=https://github.com/1992513/www/blob/master/README.md?m%231&size=240" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/1992513/www/blob/master/README.md?i#1<br>
+<br><img align="middle" src="https://raw.githubusercontent.com/1992513/www/master/t/fg200.gif?v" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://quickchart.io/qr?text=https://tinyurl.com/eeeet&size=240" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://quickchart.io/qr?text=https://github.com/1992513/www/blob/master/README.md?w%231&size=240" title="分享本平台"></img>
 <br>
-<a href="https://tinyurl.com/jjjjz">tinyurl.com/eeiee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/ff5ff">tinyurl.com/eezzz</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jjmjj">tinyurl.com/kkkk3</a>
+<a href="https://tinyurl.com/jjjji">tinyurl.com/ggjgg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/ffffe">tinyurl.com/gggge</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jjjjz">tinyurl.com/eeeeu</a>
 <br>
 <br>
-<h3><a href="https://1992513.github.io/vd/qr/qr2/#https://github.com/1992513/www/blob/master/README.md?o#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://1992513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/1992513/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fy%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://1992513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
+<h3><a href="https://1992513.github.io/vd/qr/qr2/#https://github.com/1992513/www/blob/master/README.md?u#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://1992513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/1992513/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fu%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fu%231%22%2C%22https://github.com/1992513/www/blob/master/README.md%3Fg%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://1992513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
 </div>
